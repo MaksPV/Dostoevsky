@@ -1,7 +1,7 @@
 import csv
 
 results = []
-with open('pushkin_t.csv') as File:
+with open('dostoevsky.csv', encoding="utf-8") as File:
     reader = csv.DictReader(File)
     for row in reader:
         results.append(row)
@@ -30,6 +30,6 @@ for i in results:
 <br><a href='{url}'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='{wiki}'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='{kinopoisk}'><img src='https://rating.kinopoisk.ru/{id_kinopoisk}.gif' border='0'></a><br clear="right"/>
 """)
 
-with open("Pushkin.txt", "w") as f:
+with open("README.md", "w") as f:
     f.write(a)
     f.close()
