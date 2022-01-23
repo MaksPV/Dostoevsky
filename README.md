@@ -1,1440 +1,1440 @@
 
-## Страх / Fear
+## РЎС‚СЂР°С… / Fear
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1629390/d2498b54-2ea1-4dbc-89ff-a5d63a916f41/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 1946<br>
-**Страна:** США
+**Р“РѕРґ:** 1946<br>
+**РЎС‚СЂР°РЅР°:** РЎРЁРђ
 
-фильм-интерпретация Альфреда Зейслера<br>
+С„РёР»СЊРј-РёРЅС‚РµСЂРїСЂРµС‚Р°С†РёСЏ РђР»СЊС„СЂРµРґР° Р—РµР№СЃР»РµСЂР°<br>
 <br><a href='https://youtu.be/FTJkJgAaWCA'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/83671/'><img src='https://rating.kinopoisk.ru/83671.gif' border='0'></a><br clear="right"/>
 
-## Белые ночи
+## Р‘РµР»С‹Рµ РЅРѕС‡Рё
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/4/43/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC_%D0%BF%D0%BB%D0%B0%D0%BA%D0%B0%D1%82.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1959<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1959<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Ивана Пырьева<br>
+С„РёР»СЊРј РРІР°РЅР° РџС‹СЂСЊРµРІР°<br>
 <br><a href='https://www.youtube.com/watch?v=NuEQe5i-lFw&ab_channel=%D0%9A%D0%B8%D0%BD%D0%BE%D0%BA%D0%BE%D0%BD%D1%86%D0%B5%D1%80%D0%BD%22%D0%9C%D0%BE%D1%81%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%22'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1959)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/46079/'><img src='https://rating.kinopoisk.ru/46079.gif' border='0'></a><br clear="right"/>
 
-## Петербургская ночь
+## РџРµС‚РµСЂР±СѓСЂРіСЃРєР°СЏ РЅРѕС‡СЊ
 
 <img src="https://img51994.domkino.tv/img/2008-03-10/fmt_97_peterburgskaya_noch__2.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1934<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1934<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Григория Рошаля и Веры Строевой по мотивам повестей Достоевского «Неточка Незванова» и «Белые ночи»<br>
+С„РёР»СЊРј Р“СЂРёРіРѕСЂРёСЏ Р РѕС€Р°Р»СЏ Рё Р’РµСЂС‹ РЎС‚СЂРѕРµРІРѕР№ РїРѕ РјРѕС‚РёРІР°Рј РїРѕРІРµСЃС‚РµР№ Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«РќРµС‚РѕС‡РєР° РќРµР·РІР°РЅРѕРІР°В» Рё В«Р‘РµР»С‹Рµ РЅРѕС‡РёВ»<br>
 <br><a href='https://www.youtube.com/watch?v=l8WXZGDNuvM&ab_channel=%D0%9A%D0%BB%D0%B0%D1%81%D1%81%D0%B8%D0%BA%D0%B0%D1%81%D0%BE%D0%B2%D0%B5%D1%82%D1%81%D0%BA%D0%BE%D0%B3%D0%BE%D0%BA%D0%B8%D0%BD%D0%BE%28%D0%BE%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%D0%BA%D0%B0%D0%BD%D0%B0%D0%BB%29'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/42967/'><img src='https://rating.kinopoisk.ru/42967.gif' border='0'></a><br clear="right"/>
 
-## Белые ночи. Сентиментальный роман из воспоминаний мечтателя (ТВ)
+## Р‘РµР»С‹Рµ РЅРѕС‡Рё. РЎРµРЅС‚РёРјРµРЅС‚Р°Р»СЊРЅС‹Р№ СЂРѕРјР°РЅ РёР· РІРѕСЃРїРѕРјРёРЅР°РЅРёР№ РјРµС‡С‚Р°С‚РµР»СЏ (РўР’)
 
 <img src="https://i.ytimg.com/vi/hmangPoyCoA/hqdefault.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1987<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1987<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-телеспектакль Владимира Головина, Андрея Андреева<br>
+С‚РµР»РµСЃРїРµРєС‚Р°РєР»СЊ Р’Р»Р°РґРёРјРёСЂР° Р“РѕР»РѕРІРёРЅР°, РђРЅРґСЂРµСЏ РђРЅРґСЂРµРµРІР°<br>
 <br><a href='https://www.youtube.com/watch?v=hmangPoyCoA&ab_channel=%D0%9F%D1%8F%D1%82%D1%8B%D0%B9%D0%BA%D0%B0%D0%BD%D0%B0%D0%BB%D0%A0%D0%BE%D1%81%D1%81%D0%B8%D1%8F'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ
 
 <img src="https://i.ytimg.com/vi/yVCuIJBoiiM/hqdefault.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1940<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1940<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-короткометражный игровой чёрно-белый фильм, снятый в 1940 году режиссёром Павлом Коломойцевым по комедии Михаила Зощенко.<br>
+РєРѕСЂРѕС‚РєРѕРјРµС‚СЂР°Р¶РЅС‹Р№ РёРіСЂРѕРІРѕР№ С‡С‘СЂРЅРѕ-Р±РµР»С‹Р№ С„РёР»СЊРј, СЃРЅСЏС‚С‹Р№ РІ 1940 РіРѕРґСѓ СЂРµР¶РёСЃСЃС‘СЂРѕРј РџР°РІР»РѕРј РљРѕР»РѕРјРѕР№С†РµРІС‹Рј РїРѕ РєРѕРјРµРґРёРё РњРёС…Р°РёР»Р° Р—РѕС‰РµРЅРєРѕ.<br>
 <br><a href='https://www.youtube.com/watch?v=A_8l5-f8rZc&ab_channel=HistoryClub'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%9F%D1%80%D0%B5%D1%81%D1%82%D1%83%D0%BF%D0%BB%D0%B5%D0%BD%D0%B8%D0%B5_%D0%B8_%D0%BD%D0%B0%D0%BA%D0%B0%D0%B7%D0%B0%D0%BD%D0%B8%D0%B5_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1940)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/43238/'><img src='https://rating.kinopoisk.ru/43238.gif' border='0'></a><br clear="right"/>
 
-## Белые ночи
+## Р‘РµР»С‹Рµ РЅРѕС‡Рё
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/d/d9/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8%C2%BB.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1957<br>
-**Страна:** Италия
+**Р“РѕРґ:** 1957<br>
+**РЎС‚СЂР°РЅР°:** РС‚Р°Р»РёСЏ
 
-фильм Лукино Висконти<br>
+С„РёР»СЊРј Р›СѓРєРёРЅРѕ Р’РёСЃРєРѕРЅС‚Рё<br>
 <br><a href='https://www.youtube.com/watch?v=3rPXPQPN6tw'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1957)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/56806/'><img src='https://rating.kinopoisk.ru/56806.gif' border='0'></a><br clear="right"/>
 
-## Карамазовы
+## РљР°СЂР°РјР°Р·РѕРІС‹
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/thumb/1/1c/Karamazoviplakat.jpg/800px-Karamazoviplakat.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 2008<br>
-**Страна:** Чехия, Польша
+**Р“РѕРґ:** 2008<br>
+**РЎС‚СЂР°РЅР°:** Р§РµС…РёСЏ, РџРѕР»СЊС€Р°
 
-фильм Петра Зеленки<br>
+С„РёР»СЊРј РџРµС‚СЂР° Р—РµР»РµРЅРєРё<br>
 <br><a href='https://www.youtube.com/watch?v=_JxsCZkgYPw&ab_channel=OLDDVDVIDEOS'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%9A%D0%B0%D1%80%D0%B0%D0%BC%D0%B0%D0%B7%D0%BE%D0%B2%D1%8B_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_2008)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/396900/'><img src='https://rating.kinopoisk.ru/396900.gif' border='0'></a><br clear="right"/>
 
-## Братья Карамазовы
+## Р‘СЂР°С‚СЊСЏ РљР°СЂР°РјР°Р·РѕРІС‹
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/9221d709-9cff-460b-812a-6edfe9810c95/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 2009<br>
-**Страна:** Россия
+**Р“РѕРґ:** 2009<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-сериал Юрия Мороза<br>
+СЃРµСЂРёР°Р» Р®СЂРёСЏ РњРѕСЂРѕР·Р°<br>
 <br><a href='https://www.ivi.ru/watch/bratya_karamazovy_2009'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D1%80%D0%B0%D1%82%D1%8C%D1%8F_%D0%9A%D0%B0%D1%80%D0%B0%D0%BC%D0%B0%D0%B7%D0%BE%D0%B2%D1%8B_(%D1%82%D0%B5%D0%BB%D0%B5%D1%81%D0%B5%D1%80%D0%B8%D0%B0%D0%BB)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/series/322063/'><img src='https://rating.kinopoisk.ru/322063.gif' border='0'></a><br clear="right"/>
 
-## Идиот
+## РРґРёРѕС‚
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/b/b6/Hakuchi_poster.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1951<br>
-**Страна:** Япония
+**Р“РѕРґ:** 1951<br>
+**РЎС‚СЂР°РЅР°:** РЇРїРѕРЅРёСЏ
 
-фильм Акиры Куросавы<br>
+С„РёР»СЊРј РђРєРёСЂС‹ РљСѓСЂРѕСЃР°РІС‹<br>
 <br><a href='https://www.ivi.ru/watch/56253'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%98%D0%B4%D0%B8%D0%BE%D1%82_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1951)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/161214/'><img src='https://rating.kinopoisk.ru/161214.gif' border='0'></a><br clear="right"/>
 
-## Идиот
+## РРґРёРѕС‚
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/5/5a/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D0%BF%D0%B5%D1%80%D0%B2%D0%BE%D0%B9_%D1%87%D0%B0%D1%81%D1%82%D0%B8_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%98%D0%B4%D0%B8%D0%BE%D1%82%C2%BB_%281958%29.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1958<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1958<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Ивана Пырьева<br>
+С„РёР»СЊРј РРІР°РЅР° РџС‹СЂСЊРµРІР°<br>
 <br><a href='https://www.ivi.ru/watch/54173'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%98%D0%B4%D0%B8%D0%BE%D1%82_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1958)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/42572/'><img src='https://rating.kinopoisk.ru/42572.gif' border='0'></a><br clear="right"/>
 
-## Мальчики
+## РњР°Р»СЊС‡РёРєРё
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/39cfafd5-b0dc-422e-b53e-0eaca6704323/300x450" alt="drawing" width="225" align="right"/>
 
-**Год:** 1990<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1990<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм-свободная фантазия по мотивам романа Федора Михайловича Достоевского «Братья Карамазовы» Рениты Григорьевой, Юрия Григорьева<br>
+С„РёР»СЊРј-СЃРІРѕР±РѕРґРЅР°СЏ С„Р°РЅС‚Р°Р·РёСЏ РїРѕ РјРѕС‚РёРІР°Рј СЂРѕРјР°РЅР° Р¤РµРґРѕСЂР° РњРёС…Р°Р№Р»РѕРІРёС‡Р° Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р‘СЂР°С‚СЊСЏ РљР°СЂР°РјР°Р·РѕРІС‹В» Р РµРЅРёС‚С‹ Р“СЂРёРіРѕСЂСЊРµРІРѕР№, Р®СЂРёСЏ Р“СЂРёРіРѕСЂСЊРµРІР°<br>
 <br><a href='https://www.ivi.ru/watch/425620'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%9C%D0%B0%D0%BB%D1%8C%D1%87%D0%B8%D0%BA%D0%B8_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1990)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/421334/'><img src='https://rating.kinopoisk.ru/421334.gif' border='0'></a><br clear="right"/>
 
-## Идиот
+## РРґРёРѕС‚
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/5/50/Idiot_Chardynin.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1910<br>
-**Страна:** Россия
+**Р“РѕРґ:** 1910<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-фильм Петра Чардынина<br>
+С„РёР»СЊРј РџРµС‚СЂР° Р§Р°СЂРґС‹РЅРёРЅР°<br>
 <br><a href='https://www.culture.ru/movies/22760/idiot'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%98%D0%B4%D0%B8%D0%BE%D1%82_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1910)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/40854/'><img src='https://rating.kinopoisk.ru/40854.gif' border='0'></a><br clear="right"/>
 
-## Бесы
+## Р‘РµСЃС‹
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/c986f936-c602-484d-a76e-24daa8d88ae3/1920x" alt="drawing" width="225" align="right"/>
 
-**Год:** 2014<br>
-**Страна:** Россия
+**Р“РѕРґ:** 2014<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-сериал Владимира Хотиненко<br>
+СЃРµСЂРёР°Р» Р’Р»Р°РґРёРјРёСЂР° РҐРѕС‚РёРЅРµРЅРєРѕ<br>
 <br><a href='https://www.culture.ru/movies/1611/besy'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D0%B5%D1%81%D1%8B_(%D1%82%D0%B5%D0%BB%D0%B5%D1%81%D0%B5%D1%80%D0%B8%D0%B0%D0%BB,_2014)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/series/718242/'><img src='https://rating.kinopoisk.ru/718242.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание Crime and Punishment
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ Crime and Punishment
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/4af1c493-c70d-4e7b-8122-f2c56292cfe1/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 1935<br>
-**Страна:** США
+**Р“РѕРґ:** 1935<br>
+**РЎС‚СЂР°РЅР°:** РЎРЁРђ
 
-фильм Джозефа фон Штернберга<br>
+С„РёР»СЊРј Р”Р¶РѕР·РµС„Р° С„РѕРЅ РЁС‚РµСЂРЅР±РµСЂРіР°<br>
 <br><a href='https://ok.ru/video/9920187044'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/13005/'><img src='https://rating.kinopoisk.ru/13005.gif' border='0'></a><br clear="right"/>
 
-## Белые ночи
+## Р‘РµР»С‹Рµ РЅРѕС‡Рё
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/7/72/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_01.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1992<br>
-**Страна:** Россия
+**Р“РѕРґ:** 1992<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-фильм Леонида Квинихидзе<br>
+С„РёР»СЊРј Р›РµРѕРЅРёРґР° РљРІРёРЅРёС…РёРґР·Рµ<br>
 <br><a href='https://ok.ru/video/750132923077'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1992)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/41492/'><img src='https://rating.kinopoisk.ru/41492.gif' border='0'></a><br clear="right"/>
 
-## Дядюшкин сон
+## Р”СЏРґСЋС€РєРёРЅ СЃРѕРЅ
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/0dac787e-016c-4a14-bad0-375c56cf6699/300x450" alt="drawing" width="225" align="right"/>
 
-**Год:** 1966<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1966<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Константина Воинова<br>
+С„РёР»СЊРј РљРѕРЅСЃС‚Р°РЅС‚РёРЅР° Р’РѕРёРЅРѕРІР°<br>
 <br><a href='https://ok.ru/video/2219205724853'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%94%D1%8F%D0%B4%D1%8E%D1%88%D0%BA%D0%B8%D0%BD_%D1%81%D0%BE%D0%BD_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/44370/'><img src='https://rating.kinopoisk.ru/44370.gif' border='0'></a><br clear="right"/>
 
-## Братья Карамазовы
+## Р‘СЂР°С‚СЊСЏ РљР°СЂР°РјР°Р·РѕРІС‹
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/d/d9/%D0%91%D1%80%D0%B0%D1%82%D1%8C%D1%8F_%D0%9A%D0%B0%D1%80%D0%B0%D0%BC%D0%B0%D0%B7%D0%BE%D0%B2%D1%8B_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC_%D0%BF%D0%BB%D0%B0%D0%BA%D0%B0%D1%82.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1969<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1969<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Ивана Пырьева, Михаила Ульянова и Кирилла Лаврова<br>
+С„РёР»СЊРј РРІР°РЅР° РџС‹СЂСЊРµРІР°, РњРёС…Р°РёР»Р° РЈР»СЊСЏРЅРѕРІР° Рё РљРёСЂРёР»Р»Р° Р›Р°РІСЂРѕРІР°<br>
 <br><a href='https://ok.ru/video/1686545042117'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D1%80%D0%B0%D1%82%D1%8C%D1%8F_%D0%9A%D0%B0%D1%80%D0%B0%D0%BC%D0%B0%D0%B7%D0%BE%D0%B2%D1%8B_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1968)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/46217/'><img src='https://rating.kinopoisk.ru/46217.gif' border='0'></a><br clear="right"/>
 
-## Братья Карамазовы / The Brothers Karamazov
+## Р‘СЂР°С‚СЊСЏ РљР°СЂР°РјР°Р·РѕРІС‹ / The Brothers Karamazov
 
 <img src="https://www.kino-teatr.ru/movie/posters/big/4/19344.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1958<br>
-**Страна:** США
+**Р“РѕРґ:** 1958<br>
+**РЎС‚СЂР°РЅР°:** РЎРЁРђ
 
-фильм Ричарда Брукса<br>
+С„РёР»СЊРј Р РёС‡Р°СЂРґР° Р‘СЂСѓРєСЃР°<br>
 <br><a href='https://ok.ru/video/1519282162246'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D1%80%D0%B0%D1%82%D1%8C%D1%8F_%D0%9A%D0%B0%D1%80%D0%B0%D0%BC%D0%B0%D0%B7%D0%BE%D0%B2%D1%8B_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1958)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/10037/'><img src='https://rating.kinopoisk.ru/10037.gif' border='0'></a><br clear="right"/>
 
-## Игрок / (англ. The Gambler)
+## РРіСЂРѕРє / (Р°РЅРіР». The Gambler)
 
 <img src="https://m.media-amazon.com/images/M/MV5BYzU1MDBiYTAtZjczOS00OGUyLTkxYWEtNjgyNTA3ZWU5YzgwXkEyXkFqcGdeQXVyMjI4MjA5MzA@._V1_.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1974<br>
-**Страна:** США
+**Р“РѕРґ:** 1974<br>
+**РЎС‚СЂР°РЅР°:** РЎРЁРђ
 
-фильм Карела Рейша<br>
+С„РёР»СЊРј РљР°СЂРµР»Р° Р РµР№С€Р°<br>
 <br><a href='https://ok.ru/video/1285343283867'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%98%D0%B3%D1%80%D0%BE%D0%BA_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1974)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/2819/'><img src='https://rating.kinopoisk.ru/2819.gif' border='0'></a><br clear="right"/>
 
-## Великий грешник / англ. The great sinner
+## Р’РµР»РёРєРёР№ РіСЂРµС€РЅРёРє / Р°РЅРіР». The great sinner
 
 <img src="https://www.kino-teatr.ru/movie/poster/16881/36031.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1948<br>
-**Страна:** США
+**Р“РѕРґ:** 1948<br>
+**РЎС‚СЂР°РЅР°:** РЎРЁРђ
 
-фильм Роберта Сиодмака<br>
+С„РёР»СЊРј Р РѕР±РµСЂС‚Р° РЎРёРѕРґРјР°РєР°<br>
 <br><a href='https://my.mail.ru/mail/vm_gluschenko/video/52405/217281.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/11859/'><img src='https://rating.kinopoisk.ru/11859.gif' border='0'></a><br clear="right"/>
 
-## Игрок / фр. Le Joueur
+## РРіСЂРѕРє / С„СЂ. Le Joueur
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/5282a4c2-9bdd-4d49-8377-14b5e386dc45/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 1958<br>
-**Страна:** Франция, Италия
+**Р“РѕРґ:** 1958<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ, РС‚Р°Р»РёСЏ
 
-фильм Клода Отан-Лары<br>
+С„РёР»СЊРј РљР»РѕРґР° РћС‚Р°РЅ-Р›Р°СЂС‹<br>
 <br><a href='https://my.mail.ru/mail/ruzanovlev/video/_myvideo/1781.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/161056/'><img src='https://rating.kinopoisk.ru/161056.gif' border='0'></a><br clear="right"/>
 
-## Раскольников / нем. Raskolnikow (1923)
+## Р Р°СЃРєРѕР»СЊРЅРёРєРѕРІ / РЅРµРј. Raskolnikow (1923)
 
 <img src="https://www.kino-teatr.ru/movie/kadr/9821/pv_468432.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1923<br>
-**Страна:** Германия
+**Р“РѕРґ:** 1923<br>
+**РЎС‚СЂР°РЅР°:** Р“РµСЂРјР°РЅРёСЏ
 
-фильм Роберта Вине<br>
+С„РёР»СЊРј Р РѕР±РµСЂС‚Р° Р’РёРЅРµ<br>
 <br><a href='https://my.mail.ru/mail/lixvin/video/13811/13849.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/222478/'><img src='https://rating.kinopoisk.ru/222478.gif' border='0'></a><br clear="right"/>
 
-## Мёртвый дом (тюрьма народов)
+## РњС‘СЂС‚РІС‹Р№ РґРѕРј (С‚СЋСЂСЊРјР° РЅР°СЂРѕРґРѕРІ)
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/1932_%D0%9C%D0%B5%D1%80%D1%82%D0%B2%D1%8B%D0%B9_%D0%B4%D0%BE%D0%BC%2C_%D0%A2%D1%8E%D1%80%D1%8C%D0%BC%D0%B0_%D0%BD%D0%B0%D1%80%D0%BE%D0%B4%D0%BE%D0%B2.webm/640px--1932_%D0%9C%D0%B5%D1%80%D1%82%D0%B2%D1%8B%D0%B9_%D0%B4%D0%BE%D0%BC%2C_%D0%A2%D1%8E%D1%80%D1%8C%D0%BC%D0%B0_%D0%BD%D0%B0%D1%80%D0%BE%D0%B4%D0%BE%D0%B2.webm.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1931<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1931<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Василия Фёдорова<br>
+С„РёР»СЊРј Р’Р°СЃРёР»РёСЏ Р¤С‘РґРѕСЂРѕРІР°<br>
 <br><a href='https://my.mail.ru/mail/golowina/video/5924/8365.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%9C%D1%91%D1%80%D1%82%D0%B2%D1%8B%D0%B9_%D0%B4%D0%BE%D0%BC'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Бесы
+## Р‘РµСЃС‹
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/thumb/8/87/%D0%91%D0%B5%D1%81%D1%8B_%D0%BF%D0%BE%D1%81%D1%82%D0%B5%D1%80_2006.jpeg/266px-%D0%91%D0%B5%D1%81%D1%8B_%D0%BF%D0%BE%D1%81%D1%82%D0%B5%D1%80_2006.jpeg" alt="drawing" width="225" align="right"/>
 
-**Год:** 2006<br>
-**Страна:** Россия
+**Р“РѕРґ:** 2006<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-фильм Феликса Шультесса<br>
+С„РёР»СЊРј Р¤РµР»РёРєСЃР° РЁСѓР»СЊС‚РµСЃСЃР°<br>
 <br><a href='https://my.mail.ru/mail/blogi93-67/video/18'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D0%B5%D1%81%D1%8B_(%D1%82%D0%B5%D0%BB%D0%B5%D1%81%D0%B5%D1%80%D0%B8%D0%B0%D0%BB,_2006)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/series/280169/'><img src='https://rating.kinopoisk.ru/280169.gif' border='0'></a><br clear="right"/>
 
-## Идиот / L’Idiot
+## РРґРёРѕС‚ / LвЂ™Idiot
 
 <img src="https://s3.afisha.ru/mediastorage/ba/2e/6388c71dbba74e15919d824b2eba.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1946<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1946<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Жоржа Лампена<br>
+С„РёР»СЊРј Р–РѕСЂР¶Р° Р›Р°РјРїРµРЅР°<br>
 <br><a href='https://my.mail.ru/mail/barakin.oleg/video/211/11754.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%98%D0%B4%D0%B8%D0%BE%D1%82_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1946)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/142551/'><img src='https://rating.kinopoisk.ru/142551.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1946459/4dedc74f-07f8-44e1-ad16-5118fa3857c0/1920x" alt="drawing" width="225" align="right"/>
 
-**Год:** 1956<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1956<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Жоржа Лампена<br>
+С„РёР»СЊРј Р–РѕСЂР¶Р° Р›Р°РјРїРµРЅР°<br>
 <br><a href='https://my.mail.ru/mail/armbruster.a3/video/_myvideo/2077.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%9F%D1%80%D0%B5%D1%81%D1%82%D1%83%D0%BF%D0%BB%D0%B5%D0%BD%D0%B8%D0%B5_%D0%B8_%D0%BD%D0%B0%D0%BA%D0%B0%D0%B7%D0%B0%D0%BD%D0%B8%D0%B5_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1956)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/158905/'><img src='https://rating.kinopoisk.ru/158905.gif' border='0'></a><br clear="right"/>
 
-## Бесы
+## Р‘РµСЃС‹
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/5/5b/%D0%91%D0%B5%D1%81%D1%8B%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%801992.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1992<br>
-**Страна:** Россия
+**Р“РѕРґ:** 1992<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-фильм Игоря и Дмитрия Таланкиных<br>
+С„РёР»СЊРј РРіРѕСЂСЏ Рё Р”РјРёС‚СЂРёСЏ РўР°Р»Р°РЅРєРёРЅС‹С…<br>
 <br><a href='https://cccp-film.ru/video/sovetskie-filmy/besy-1992.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%91%D0%B5%D1%81%D1%8B_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_1992)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/41496/'><img src='https://rating.kinopoisk.ru/41496.gif' border='0'></a><br clear="right"/>
 
-## Бесы
+## Р‘РµСЃС‹
 
 <img src="https://fs.kinomania.ru/file/film/1/dd/1dd7a395671097926acc59543bef384c.jpeg" alt="drawing" width="225" align="right"/>
 
-**Год:** 1988<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1988<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Анджея Вайды<br>
+С„РёР»СЊРј РђРЅРґР¶РµСЏ Р’Р°Р№РґС‹<br>
 <br><a href='https://adult.noodlemagazine.com/watch/65023081_156089762'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/10286/'><img src='https://rating.kinopoisk.ru/10286.gif' border='0'></a><br clear="right"/>
 
-## Возлюбленная
+## Р’РѕР·Р»СЋР±Р»РµРЅРЅР°СЏ
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/9f2f1c1d-4f9b-437f-803a-42ce2424c4b7/300x450" alt="drawing" width="225" align="right"/>
 
-**Год:** 2007<br>
-**Страна:** Индия
+**Р“РѕРґ:** 2007<br>
+**РЎС‚СЂР°РЅР°:** РРЅРґРёСЏ
 
-фильм Санджея Лила Бхансалиа по мотивам повести Достоевского «Белые ночи»<br>
+С„РёР»СЊРј РЎР°РЅРґР¶РµСЏ Р›РёР»Р° Р‘С…Р°РЅСЃР°Р»РёР° РїРѕ РјРѕС‚РёРІР°Рј РїРѕРІРµСЃС‚Рё Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р‘РµР»С‹Рµ РЅРѕС‡РёВ»<br>
 <br><a href='http://film46.zogonka.org/video/36935-vozlyublennaya-2007-online.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%92%D0%BE%D0%B7%D0%BB%D1%8E%D0%B1%D0%BB%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_2007)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/263315/'><img src='https://rating.kinopoisk.ru/263315.gif' border='0'></a><br clear="right"/>
 
-## Четыре ночи мечтателя
+## Р§РµС‚С‹СЂРµ РЅРѕС‡Рё РјРµС‡С‚Р°С‚РµР»СЏ
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1898899/040da3da-03aa-459f-bf3b-5d3d824bf172/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 1971<br>
-**Страна:** Франция, Италия
+**Р“РѕРґ:** 1971<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ, РС‚Р°Р»РёСЏ
 
-фильм Робера Брессона по мотивам повести Достоевского «Белые ночи»<br>
+С„РёР»СЊРј Р РѕР±РµСЂР° Р‘СЂРµСЃСЃРѕРЅР° РїРѕ РјРѕС‚РёРІР°Рј РїРѕРІРµСЃС‚Рё Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р‘РµР»С‹Рµ РЅРѕС‡РёВ»<br>
 <br><a href='http://film46.zogonka.org/video/12012-1_chetyre-nochi-mechtatelya-1971-online.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/100607/'><img src='https://rating.kinopoisk.ru/100607.gif' border='0'></a><br clear="right"/>
 
-## Кроткая
+## РљСЂРѕС‚РєР°СЏ
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/c6f85829-7aa8-45bd-9f4f-806585e1bd4c/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 2017<br>
-**Страна:** Украина
+**Р“РѕРґ:** 2017<br>
+**РЎС‚СЂР°РЅР°:** РЈРєСЂР°РёРЅР°
 
-фильм Сергея Лозницы<br>
+С„РёР»СЊРј РЎРµСЂРіРµСЏ Р›РѕР·РЅРёС†С‹<br>
 <br><a href='https://ok.ru/video/470772355517'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%9A%D1%80%D0%BE%D1%82%D0%BA%D0%B0%D1%8F_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_2017)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/1007433/'><img src='https://rating.kinopoisk.ru/1007433.gif' border='0'></a><br clear="right"/>
 
-## Двойник
+## Р”РІРѕР№РЅРёРє
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/068ade75-8202-46df-a225-67c8828fc7b3/300x450" alt="drawing" width="225" align="right"/>
 
-**Год:** 2013<br>
-**Страна:** Великобритания
+**Р“РѕРґ:** 2013<br>
+**РЎС‚СЂР°РЅР°:** Р’РµР»РёРєРѕР±СЂРёС‚Р°РЅРёСЏ
 
-фильм Ричарда Айоади, вольная интерпретация одноимённого произведения<br>
+С„РёР»СЊРј Р РёС‡Р°СЂРґР° РђР№РѕР°РґРё, РІРѕР»СЊРЅР°СЏ РёРЅС‚РµСЂРїСЂРµС‚Р°С†РёСЏ РѕРґРЅРѕРёРјС‘РЅРЅРѕРіРѕ РїСЂРѕРёР·РІРµРґРµРЅРёСЏ<br>
 <br><a href='https://ok.ru/video/1066936109646'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%94%D0%B2%D0%BE%D0%B9%D0%BD%D0%B8%D0%BA_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC,_2013)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/602694/'><img src='https://rating.kinopoisk.ru/602694.gif' border='0'></a><br clear="right"/>
 
-## Внутри
+## Р’РЅСѓС‚СЂРё
 
 <img src="https://turkiru.ru/uploads/posts/2020-07/596518_1594871642.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 2012<br>
-**Страна:** Турция
+**Р“РѕРґ:** 2012<br>
+**РЎС‚СЂР°РЅР°:** РўСѓСЂС†РёСЏ
 
-фильм Зеки Демиркубуза<br>
+С„РёР»СЊРј Р—РµРєРё Р”РµРјРёСЂРєСѓР±СѓР·Р°<br>
 <br><a href='https://my.mail.ru/mail/lixvin/video/203/17039.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/596518/'><img src='https://rating.kinopoisk.ru/596518.gif' border='0'></a><br clear="right"/>
 
-## Студент
+## РЎС‚СѓРґРµРЅС‚
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/f50cf4bf-33f4-41cb-8b0f-ceb479159c30/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 2012<br>
-**Страна:** Казахстан
+**Р“РѕРґ:** 2012<br>
+**РЎС‚СЂР°РЅР°:** РљР°Р·Р°С…СЃС‚Р°РЅ
 
-фильм Дарежана Омирбаева<br>
+С„РёР»СЊРј Р”Р°СЂРµР¶Р°РЅР° РћРјРёСЂР±Р°РµРІР°<br>
 <br><a href='https://ok.ru/video/47570291243'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%A1%D1%82%D1%83%D0%B4%D0%B5%D0%BD%D1%82_(%D1%84%D0%B8%D0%BB%D1%8C%D0%BC)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/678416/'><img src='https://rating.kinopoisk.ru/678416.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ
 
 <img src="https://thumbs.dfs.ivi.ru/storage15/contents/8/c/7b0572ee536d47332699311acfda2c.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 2007<br>
-**Страна:** Россия
+**Р“РѕРґ:** 2007<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-телесериал Дмитрия Светозарова<br>
+С‚РµР»РµСЃРµСЂРёР°Р» Р”РјРёС‚СЂРёСЏ РЎРІРµС‚РѕР·Р°СЂРѕРІР°<br>
 <br><a href='https://www.ivi.ru/watch/prestuplenie-i-nakazanie-2007'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%9F%D1%80%D0%B5%D1%81%D1%82%D1%83%D0%BF%D0%BB%D0%B5%D0%BD%D0%B8%D0%B5_%D0%B8_%D0%BD%D0%B0%D0%BA%D0%B0%D0%B7%D0%B0%D0%BD%D0%B8%D0%B5_(%D1%82%D0%B5%D0%BB%D0%B5%D1%81%D0%B5%D1%80%D0%B8%D0%B0%D0%BB,_2007)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/series/260310/'><img src='https://rating.kinopoisk.ru/260310.gif' border='0'></a><br clear="right"/>
 
-## Идиот
+## РРґРёРѕС‚
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1777765/c246cbe4-118a-4cbf-9eb6-0418ab046ac5/300x450" alt="drawing" width="225" align="right"/>
 
-**Год:** 2003<br>
-**Страна:** Россия
+**Р“РѕРґ:** 2003<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-телесериал Владимира Бортко<br>
+С‚РµР»РµСЃРµСЂРёР°Р» Р’Р»Р°РґРёРјРёСЂР° Р‘РѕСЂС‚РєРѕ<br>
 <br><a href='https://www.culture.ru/movies/1609/idiot'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%98%D0%B4%D0%B8%D0%BE%D1%82_(%D1%82%D0%B5%D0%BB%D0%B5%D1%81%D0%B5%D1%80%D0%B8%D0%B0%D0%BB)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/series/77051/'><img src='https://rating.kinopoisk.ru/77051.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/6267e56b-ae5c-4bd1-9a49-bf76178f719a/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 2003<br>
-**Страна:** Великобритания
+**Р“РѕРґ:** 2003<br>
+**РЎС‚СЂР°РЅР°:** Р’РµР»РёРєРѕР±СЂРёС‚Р°РЅРёСЏ
 
-фильм Джулиана Джаролда<br>
+С„РёР»СЊРј Р”Р¶СѓР»РёР°РЅР° Р”Р¶Р°СЂРѕР»РґР°<br>
 <br><a href='https://ok.ru/video/1219919612473'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://en.wikipedia.org/wiki/Crime_and_Punishment_(2002_TV_series)'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/327456/'><img src='https://rating.kinopoisk.ru/327456.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ
 
 <img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/8063fd94-f337-498c-a528-a9160cbd7598/600x900" alt="drawing" width="225" align="right"/>
 
-**Год:** 2000<br>
-**Страна:** Польша
+**Р“РѕРґ:** 2000<br>
+**РЎС‚СЂР°РЅР°:** РџРѕР»СЊС€Р°
 
-рисованный мультипликационный фильм Петра Думала<br>
+СЂРёСЃРѕРІР°РЅРЅС‹Р№ РјСѓР»СЊС‚РёРїР»РёРєР°С†РёРѕРЅРЅС‹Р№ С„РёР»СЊРј РџРµС‚СЂР° Р”СѓРјР°Р»Р°<br>
 <br><a href='https://vk.com/video8032162_162160463'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/66395/'><img src='https://rating.kinopoisk.ru/66395.gif' border='0'></a><br clear="right"/>
 
-## Даун Хаус
+## Р”Р°СѓРЅ РҐР°СѓСЃ
 
 <img src="https://upload.wikimedia.org/wikipedia/ru/thumb/7/76/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%94%D0%B0%D1%83%D0%BD_%D0%A5%D0%B0%D1%83%D1%81%C2%BB_%28%D0%A0%D0%BE%D1%81%D1%81%D0%B8%D1%8F%2C_2001%29.jpg/640px-%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%94%D0%B0%D1%83%D0%BD_%D0%A5%D0%B0%D1%83%D1%81%C2%BB_%28%D0%A0%D0%BE%D1%81%D1%81%D0%B8%D1%8F%2C_2001%29.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 2001<br>
-**Страна:** Россия
+**Р“РѕРґ:** 2001<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-фильм-интерпретация Романа Качанова<br>
+С„РёР»СЊРј-РёРЅС‚РµСЂРїСЂРµС‚Р°С†РёСЏ Р РѕРјР°РЅР° РљР°С‡Р°РЅРѕРІР°<br>
 <br><a href='https://www.youtube.com/watch?v=VUhvBzs9c1U'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href='https://ru.wikipedia.org/wiki/%D0%94%D0%B0%D1%83%D0%BD_%D0%A5%D0%B0%D1%83%D1%81'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/41149'><img src='https://rating.kinopoisk.ru/41149.gif' border='0'></a><br clear="right"/>
 
-## Кроткая
+## РљСЂРѕС‚РєР°СЏ
 
 <img src="https://ovideo.ru/images/posters/0004/5731/0001.jpg" alt="drawing" width="225" align="right"/>
 
-**Год:** 2000<br>
-**Страна:** Россия
+**Р“РѕРґ:** 2000<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-фильм Евгения Ростовского<br>
+С„РёР»СЊРј Р•РІРіРµРЅРёСЏ Р РѕСЃС‚РѕРІСЃРєРѕРіРѕ<br>
 <br><a href='https://my.mail.ru/mail/vera_zvereva1/video/_myvideo/15451.html'><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href='https://www.kinopoisk.ru/film/471155/'><img src='https://rating.kinopoisk.ru/471155.gif' border='0'></a><br clear="right"/>
 
-## Вечный муж
+## Р’РµС‡РЅС‹Р№ РјСѓР¶
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1993<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1993<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Дени Гранье-Дефер<br>
+С„РёР»СЊРј Р”РµРЅРё Р“СЂР°РЅСЊРµ-Р”РµС„РµСЂ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Дезертир[sr] / Дезертер
+## Р”РµР·РµСЂС‚РёСЂ[sr] / Р”РµР·РµСЂС‚РµСЂ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1992<br>
-**Страна:** Югославия
+**Р“РѕРґ:** 1992<br>
+**РЎС‚СЂР°РЅР°:** Р®РіРѕСЃР»Р°РІРёСЏ
 
-фильм Живоина Павловича<br>
+С„РёР»СЊРј Р–РёРІРѕРёРЅР° РџР°РІР»РѕРІРёС‡Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идиот[en]
+## РРґРёРѕС‚[en]
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1992<br>
-**Страна:** Индия
+**Р“РѕРґ:** 1992<br>
+**РЎС‚СЂР°РЅР°:** РРЅРґРёСЏ
 
-фильм / минисериал Мани Каула[en]<br>
+С„РёР»СЊРј / РјРёРЅРёСЃРµСЂРёР°Р» РњР°РЅРё РљР°СѓР»Р°[en]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Кроткая
+## РљСЂРѕС‚РєР°СЏ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1992<br>
-**Страна:** Россия, Грузия, Италия
+**Р“РѕРґ:** 1992<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ, Р“СЂСѓР·РёСЏ, РС‚Р°Р»РёСЏ
 
-фильм Автандила Варсимашвили<br>
+С„РёР»СЊРј РђРІС‚Р°РЅРґРёР»Р° Р’Р°СЂСЃРёРјР°С€РІРёР»Рё<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Сон смешного человека
+## РЎРѕРЅ СЃРјРµС€РЅРѕРіРѕ С‡РµР»РѕРІРµРєР°
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1992<br>
-**Страна:** Россия
+**Р“РѕРґ:** 1992<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-мультфильм Александра Петрова<br>
+РјСѓР»СЊС‚С„РёР»СЊРј РђР»РµРєСЃР°РЅРґСЂР° РџРµС‚СЂРѕРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Крокодил (мультфильм)
+## РљСЂРѕРєРѕРґРёР» (РјСѓР»СЊС‚С„РёР»СЊРј)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1991<br>
-**Страна:** Украина
+**Р“РѕРґ:** 1991<br>
+**РЎС‚СЂР°РЅР°:** РЈРєСЂР°РёРЅР°
 
-рисованный мультипликационный фильм Михаила Титова<br>
+СЂРёСЃРѕРІР°РЅРЅС‹Р№ РјСѓР»СЊС‚РёРїР»РёРєР°С†РёРѕРЅРЅС‹Р№ С„РёР»СЊРј РњРёС…Р°РёР»Р° РўРёС‚РѕРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Вечный муж
+## Р’РµС‡РЅС‹Р№ РјСѓР¶
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1990<br>
-**Страна:** Россия
+**Р“РѕРґ:** 1990<br>
+**РЎС‚СЂР°РЅР°:** Р РѕСЃСЃРёСЏ
 
-фильм Евгения Марковского<br>
+С„РёР»СЊРј Р•РІРіРµРЅРёСЏ РњР°СЂРєРѕРІСЃРєРѕРіРѕ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Месть женщины[fr] / La vengeance d'une femme
+## РњРµСЃС‚СЊ Р¶РµРЅС‰РёРЅС‹[fr] / La vengeance d'une femme
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1990<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1990<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Жака Дуайона по мотивам повести Ф. М. Достоевского «Вечный муж»<br>
+С„РёР»СЊРј Р–Р°РєР° Р”СѓР°Р№РѕРЅР° РїРѕ РјРѕС‚РёРІР°Рј РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р’РµС‡РЅС‹Р№ РјСѓР¶В»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Униженные и оскорблённые
+## РЈРЅРёР¶РµРЅРЅС‹Рµ Рё РѕСЃРєРѕСЂР±Р»С‘РЅРЅС‹Рµ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1990<br>
-**Страна:** СССР, Швейцария, Италия
+**Р“РѕРґ:** 1990<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР , РЁРІРµР№С†Р°СЂРёСЏ, РС‚Р°Р»РёСЏ
 
-фильм Андрея Эшпая<br>
+С„РёР»СЊРј РђРЅРґСЂРµСЏ Р­С€РїР°СЏ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Двойник (ТВ)
+## Р”РІРѕР№РЅРёРє (РўР’)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1989<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1989<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Юрия Маляцкого<br>
+С„РёР»СЊРј Р®СЂРёСЏ РњР°Р»СЏС†РєРѕРіРѕ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Село Степанчиково и его обитатели
+## РЎРµР»Рѕ РЎС‚РµРїР°РЅС‡РёРєРѕРІРѕ Рё РµРіРѕ РѕР±РёС‚Р°С‚РµР»Рё
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1989<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1989<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-телефильм Льва Цуцульковского<br>
+С‚РµР»РµС„РёР»СЊРј Р›СЊРІР° Р¦СѓС†СѓР»СЊРєРѕРІСЃРєРѕРіРѕ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Посещение
+## РџРѕСЃРµС‰РµРЅРёРµ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1989<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1989<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Валерия Ткачёва по мотивам повести Ф. М. Достоевского «Сон смешного человека»<br>
+С„РёР»СЊРј Р’Р°Р»РµСЂРёСЏ РўРєР°С‡С‘РІР° РїРѕ РјРѕС‚РёРІР°Рј РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«РЎРѕРЅ СЃРјРµС€РЅРѕРіРѕ С‡РµР»РѕРІРµРєР°В»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание (ТВ) / Zbrodnia i kara
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ (РўР’) / Zbrodnia i kara
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1987<br>
-**Страна:** Польша
+**Р“РѕРґ:** 1987<br>
+**РЎС‚СЂР°РЅР°:** РџРѕР»СЊС€Р°
 
-фильм Анджея Вайды<br>
+С„РёР»СЊРј РђРЅРґР¶РµСЏ Р’Р°Р№РґС‹<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## День и ночь / Jour et nuit
+## Р”РµРЅСЊ Рё РЅРѕС‡СЊ / Jour et nuit
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1986<br>
-**Страна:** Франция, Швейцария
+**Р“РѕРґ:** 1986<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ, РЁРІРµР№С†Р°СЂРёСЏ
 
-фильм Жана-Бернару Мену по повести Ф. М. Достоевского «Записки из подполья»<br>
+С„РёР»СЊРј Р–Р°РЅР°-Р‘РµСЂРЅР°СЂСѓ РњРµРЅСѓ РїРѕ РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р—Р°РїРёСЃРєРё РёР· РїРѕРґРїРѕР»СЊСЏВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Село Степанчиково и его обитатели
+## РЎРµР»Рѕ РЎС‚РµРїР°РЅС‡РёРєРѕРІРѕ Рё РµРіРѕ РѕР±РёС‚Р°С‚РµР»Рё
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1986<br>
-**Страна:** Венгрия
+**Р“РѕРґ:** 1986<br>
+**РЎС‚СЂР°РЅР°:** Р’РµРЅРіСЂРёСЏ
 
-фильм Шандора Михалифи<br>
+С„РёР»СЊРј РЁР°РЅРґРѕСЂР° РњРёС…Р°Р»РёС„Рё<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Шальная любовь
+## РЁР°Р»СЊРЅР°СЏ Р»СЋР±РѕРІСЊ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1985<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1985<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Анджея Жулавского<br>
+С„РёР»СЊРј РђРЅРґР¶РµСЏ Р–СѓР»Р°РІСЃРєРѕРіРѕ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Кроткая
+## РљСЂРѕС‚РєР°СЏ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1985<br>
-**Страна:** Польша
+**Р“РѕРґ:** 1985<br>
+**РЎС‚СЂР°РЅР°:** РџРѕР»СЊС€Р°
 
-рисованный мультипликационный фильм Петра Думала<br>
+СЂРёСЃРѕРІР°РЅРЅС‹Р№ РјСѓР»СЊС‚РёРїР»РёРєР°С†РёРѕРЅРЅС‹Р№ С„РёР»СЊРј РџРµС‚СЂР° Р”СѓРјР°Р»Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Современники / Aikalainen
+## РЎРѕРІСЂРµРјРµРЅРЅРёРєРё / Aikalainen
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1984<br>
-**Страна:** Финляндия
+**Р“РѕРґ:** 1984<br>
+**РЎС‚СЂР°РЅР°:** Р¤РёРЅР»СЏРЅРґРёСЏ
 
-фильм Тимо Линнасало[fi] по повести Ф. М. Достоевского «Записки из подполья»<br>
+С„РёР»СЊРј РўРёРјРѕ Р›РёРЅРЅР°СЃР°Р»Рѕ[fi] РїРѕ РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р—Р°РїРёСЃРєРё РёР· РїРѕРґРїРѕР»СЊСЏВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идиот / To pathos
+## РРґРёРѕС‚ / To pathos
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1984<br>
-**Страна:** Греция
+**Р“РѕРґ:** 1984<br>
+**РЎС‚СЂР°РЅР°:** Р“СЂРµС†РёСЏ
 
-сериал<br>
+СЃРµСЂРёР°Р»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Чужая жена и муж под кроватью
+## Р§СѓР¶Р°СЏ Р¶РµРЅР° Рё РјСѓР¶ РїРѕРґ РєСЂРѕРІР°С‚СЊСЋ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1984<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1984<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Виталия Мельникова<br>
+С„РёР»СЊРј Р’РёС‚Р°Р»РёСЏ РњРµР»СЊРЅРёРєРѕРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Крокодил / Krokod?l
+## РљСЂРѕРєРѕРґРёР» / Krokod?l
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1983<br>
-**Страна:** Чехословакия
+**Р“РѕРґ:** 1983<br>
+**РЎС‚СЂР°РЅР°:** Р§РµС…РѕСЃР»РѕРІР°РєРёСЏ
 
-фильм Мартина Хоффмайстера<br>
+С„РёР»СЊРј РњР°СЂС‚РёРЅР° РҐРѕС„С„РјР°Р№СЃС‚РµСЂР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Подросток
+## РџРѕРґСЂРѕСЃС‚РѕРє
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1983<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1983<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Евгения Ташкова<br>
+С„РёР»СЊРј Р•РІРіРµРЅРёСЏ РўР°С€РєРѕРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1983<br>
-**Страна:** Финляндия
+**Р“РѕРґ:** 1983<br>
+**РЎС‚СЂР°РЅР°:** Р¤РёРЅР»СЏРЅРґРёСЏ
 
-фильм Аки Каурисмяки<br>
+С„РёР»СЊРј РђРєРё РљР°СѓСЂРёСЃРјСЏРєРё<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание / Delitto e castigo
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ / Delitto e castigo
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1983<br>
-**Страна:** Италия
+**Р“РѕРґ:** 1983<br>
+**РЎС‚СЂР°РЅР°:** РС‚Р°Р»РёСЏ
 
-сериал Марио Миссироли[it]<br>
+СЃРµСЂРёР°Р» РњР°СЂРёРѕ РњРёСЃСЃРёСЂРѕР»Рё[it]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Двое мужчин под кроватью / K?t f?rfi az ?gy alatt (ТВ)
+## Р”РІРѕРµ РјСѓР¶С‡РёРЅ РїРѕРґ РєСЂРѕРІР°С‚СЊСЋ / K?t f?rfi az ?gy alatt (РўР’)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1983<br>
-**Страна:** Венгрия
+**Р“РѕРґ:** 1983<br>
+**РЎС‚СЂР°РЅР°:** Р’РµРЅРіСЂРёСЏ
 
-фильм Тивадара Хорвата<br>
+С„РёР»СЊРј РўРёРІР°РґР°СЂР° РҐРѕСЂРІР°С‚Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Дядюшкин сон
+## Р”СЏРґСЋС€РєРёРЅ СЃРѕРЅ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1981<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1981<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-телеспектакль, трагикомедия по одноимённой повести Ф. М. Достоевского, реж. Александр Орлов<br>
+С‚РµР»РµСЃРїРµРєС‚Р°РєР»СЊ, С‚СЂР°РіРёРєРѕРјРµРґРёСЏ РїРѕ РѕРґРЅРѕРёРјС‘РЅРЅРѕР№ РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ, СЂРµР¶. РђР»РµРєСЃР°РЅРґСЂ РћСЂР»РѕРІ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Подпольный человек[es] / El hombre del subsuelo
+## РџРѕРґРїРѕР»СЊРЅС‹Р№ С‡РµР»РѕРІРµРє[es] / El hombre del subsuelo
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1981<br>
-**Страна:** Аргентина
+**Р“РѕРґ:** 1981<br>
+**РЎС‚СЂР°РЅР°:** РђСЂРіРµРЅС‚РёРЅР°
 
-фильм Николаса Саркиса[es] по повести Ф. М. Достоевского «Записки из подполья»<br>
+С„РёР»СЊРј РќРёРєРѕР»Р°СЃР° РЎР°СЂРєРёСЃР°[es] РїРѕ РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р—Р°РїРёСЃРєРё РёР· РїРѕРґРїРѕР»СЊСЏВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Дядюшкин сон (ТВ) / Str?ckuv sen
+## Р”СЏРґСЋС€РєРёРЅ СЃРѕРЅ (РўР’) / Str?ckuv sen
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1979<br>
-**Страна:** Чехословакия
+**Р“РѕРґ:** 1979<br>
+**РЎС‚СЂР°РЅР°:** Р§РµС…РѕСЃР»РѕРІР°РєРёСЏ
 
-фильм Петра Милоса на словацком языке<br>
+С„РёР»СЊРј РџРµС‚СЂР° РњРёР»РѕСЃР° РЅР° СЃР»РѕРІР°С†РєРѕРј СЏР·С‹РєРµ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идол из Мордасова / Das Idol von Mordassow (ТВ)
+## РРґРѕР» РёР· РњРѕСЂРґР°СЃРѕРІР° / Das Idol von Mordassow (РўР’)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1979<br>
-**Страна:** ГДР
+**Р“РѕРґ:** 1979<br>
+**РЎС‚СЂР°РЅР°:** Р“Р”Р 
 
-фильм Вольфа-Дитера Панзе[en]<br>
+С„РёР»СЊРј Р’РѕР»СЊС„Р°-Р”РёС‚РµСЂР° РџР°РЅР·Рµ[en]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идиот
+## РРґРёРѕС‚
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1979<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1979<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-телеспектакль Александры Ремизовой (театр имени Вахтангова)<br>
+С‚РµР»РµСЃРїРµРєС‚Р°РєР»СЊ РђР»РµРєСЃР°РЅРґСЂС‹ Р РµРјРёР·РѕРІРѕР№ (С‚РµР°С‚СЂ РёРјРµРЅРё Р’Р°С…С‚Р°РЅРіРѕРІР°)<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание[en] / Shikshaa
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ[en] / Shikshaa
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1979<br>
-**Страна:** Индия
+**Р“РѕРґ:** 1979<br>
+**РЎС‚СЂР°РЅР°:** РРЅРґРёСЏ
 
-фильм С. Раманатана[en] на языке хинди (римейк фильма Преступление и наказание[en] 1973 года)<br>
+С„РёР»СЊРј РЎ. Р Р°РјР°РЅР°С‚Р°РЅР°[en] РЅР° СЏР·С‹РєРµ С…РёРЅРґРё (СЂРёРјРµР№Рє С„РёР»СЊРјР° РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ[en] 1973 РіРѕРґР°)<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание / Crime and Punishment
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ / Crime and Punishment
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1979<br>
-**Страна:** Великобритания
+**Р“РѕРґ:** 1979<br>
+**РЎС‚СЂР°РЅР°:** Р’РµР»РёРєРѕР±СЂРёС‚Р°РЅРёСЏ
 
-сериал Майкла Дарлоу[en]<br>
+СЃРµСЂРёР°Р» РњР°Р№РєР»Р° Р”Р°СЂР»РѕСѓ[en]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Униженные и оскорблённые
+## РЈРЅРёР¶РµРЅРЅС‹Рµ Рё РѕСЃРєРѕСЂР±Р»С‘РЅРЅС‹Рµ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1979<br>
-**Страна:** СССР, ТО «Экран»
+**Р“РѕРґ:** 1979<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР , РўРћ В«Р­РєСЂР°РЅВ»
 
-телеспектакль Евгения Велихова и Марии Муат артистов Малого театра<br>
+С‚РµР»РµСЃРїРµРєС‚Р°РєР»СЊ Р•РІРіРµРЅРёСЏ Р’РµР»РёС…РѕРІР° Рё РњР°СЂРёРё РњСѓР°С‚ Р°СЂС‚РёСЃС‚РѕРІ РњР°Р»РѕРіРѕ С‚РµР°С‚СЂР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Твоё твоего / Teu Tua (сегмент «Мужчина под кроватью» / Um Homem Debaixo da Cama
+## РўРІРѕС‘ С‚РІРѕРµРіРѕ / Teu Tua (СЃРµРіРјРµРЅС‚ В«РњСѓР¶С‡РёРЅР° РїРѕРґ РєСЂРѕРІР°С‚СЊСЋВ» / Um Homem Debaixo da Cama
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1979<br>
-**Страна:** Бразилия
+**Р“РѕРґ:** 1979<br>
+**РЎС‚СЂР°РЅР°:** Р‘СЂР°Р·РёР»РёСЏ
 
-фильм Домингуша ди Оливейра[en]<br>
+С„РёР»СЊРј Р”РѕРјРёРЅРіСѓС€Р° РґРё РћР»РёРІРµР№СЂР°[en]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Месть / A bossz? (ТВ)
+## РњРµСЃС‚СЊ / A bossz? (РўР’)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1977<br>
-**Страна:** Венгрия
+**Р“РѕРґ:** 1977<br>
+**РЎС‚СЂР°РЅР°:** Р’РµРЅРіСЂРёСЏ
 
-фильм Дьёрдя Фехера по повести Ф. М. Достоевского «Записки из подполья»<br>
+С„РёР»СЊРј Р”СЊС‘СЂРґСЏ Р¤РµС…РµСЂР° РїРѕ РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р—Р°РїРёСЃРєРё РёР· РїРѕРґРїРѕР»СЊСЏВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Униженные и оскорблённые
+## РЈРЅРёР¶РµРЅРЅС‹Рµ Рё РѕСЃРєРѕСЂР±Р»С‘РЅРЅС‹Рµ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1977<br>
-**Страна:** Мексика
+**Р“РѕРґ:** 1977<br>
+**РЎС‚СЂР°РЅР°:** РњРµРєСЃРёРєР°
 
-телесериал Рауля Арайсы (148 серий)<br>
+С‚РµР»РµСЃРµСЂРёР°Р» Р Р°СѓР»СЏ РђСЂР°Р№СЃС‹ (148 СЃРµСЂРёР№)<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идиот / El idiota
+## РРґРёРѕС‚ / El idiota
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1976<br>
-**Страна:** Испания
+**Р“РѕРґ:** 1976<br>
+**РЎС‚СЂР°РЅР°:** РСЃРїР°РЅРёСЏ
 
-фильм Антонио Чика (20 эпизодов сериала «Роман»<br>
+С„РёР»СЊРј РђРЅС‚РѕРЅРёРѕ Р§РёРєР° (20 СЌРїРёР·РѕРґРѕРІ СЃРµСЂРёР°Р»Р° В«Р РѕРјР°РЅВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Убийца-музыкант[fr] / L'Assassin musicien
+## РЈР±РёР№С†Р°-РјСѓР·С‹РєР°РЅС‚[fr] / L'Assassin musicien
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1976<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1976<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Бенуа Жако по отивам повести ф. М. Достоевского «Неточка Незванова»<br>
+С„РёР»СЊРј Р‘РµРЅСѓР° Р–Р°РєРѕ РїРѕ РѕС‚РёРІР°Рј РїРѕРІРµСЃС‚Рё С„. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«РќРµС‚РѕС‡РєР° РќРµР·РІР°РЅРѕРІР°В»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Склони голову во имя справедливости[en] / Needhikku Thalaivanangu
+## РЎРєР»РѕРЅРё РіРѕР»РѕРІСѓ РІРѕ РёРјСЏ СЃРїСЂР°РІРµРґР»РёРІРѕСЃС‚Рё[en] / Needhikku Thalaivanangu
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1976<br>
-**Страна:** Индия
+**Р“РѕРґ:** 1976<br>
+**РЎС‚СЂР°РЅР°:** РРЅРґРёСЏ
 
-фильм П. Неелакантана[en] на тамильсеом языке (римейк фильма Преступление и наказание[en] 1973 года)<br>
+С„РёР»СЊРј Рџ. РќРµРµР»Р°РєР°РЅС‚Р°РЅР°[en] РЅР° С‚Р°РјРёР»СЊСЃРµРѕРј СЏР·С‹РєРµ (СЂРёРјРµР№Рє С„РёР»СЊРјР° РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ[en] 1973 РіРѕРґР°)<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание[en]
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ[en]
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1974<br>
-**Страна:** Индия
+**Р“РѕРґ:** 1974<br>
+**РЎС‚СЂР°РЅР°:** РРЅРґРёСЏ
 
-фильм Нисара Ахмада Ансана на языке хинди<br>
+С„РёР»СЊРј РќРёСЃР°СЂР° РђС…РјР°РґР° РђРЅСЃР°РЅР° РЅР° СЏР·С‹РєРµ С…РёРЅРґРё<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Дурак-помещик (ТВ) / Narri kartanon valtiaana
+## Р”СѓСЂР°Рє-РїРѕРјРµС‰РёРє (РўР’) / Narri kartanon valtiaana
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1974<br>
-**Страна:** Финляндия
+**Р“РѕРґ:** 1974<br>
+**РЎС‚СЂР°РЅР°:** Р¤РёРЅР»СЏРЅРґРёСЏ
 
-фильм Эйя-Элины Бергхольм[fi] по мотивам повести «Село Степанчиково и его обитатели»<br>
+С„РёР»СЊРј Р­Р№СЏ-Р­Р»РёРЅС‹ Р‘РµСЂРіС…РѕР»СЊРј[fi] РїРѕ РјРѕС‚РёРІР°Рј РїРѕРІРµСЃС‚Рё В«РЎРµР»Рѕ РЎС‚РµРїР°РЅС‡РёРєРѕРІРѕ Рё РµРіРѕ РѕР±РёС‚Р°С‚РµР»РёВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Двойник (ТВ) / Hasonm?s
+## Р”РІРѕР№РЅРёРє (РўР’) / Hasonm?s
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1973<br>
-**Страна:** Венгрия
+**Р“РѕРґ:** 1973<br>
+**РЎС‚СЂР°РЅР°:** Р’РµРЅРіСЂРёСЏ
 
-фильм Ласло Немере<br>
+С„РёР»СЊРј Р›Р°СЃР»Рѕ РќРµРјРµСЂРµ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание[en] / Neramu Siksha
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ[en] / Neramu Siksha
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1973<br>
-**Страна:** Индия
+**Р“РѕРґ:** 1973<br>
+**РЎС‚СЂР°РЅР°:** РРЅРґРёСЏ
 
-фильм К Вишванатха[en] на язычке телугу<br>
+С„РёР»СЊРј Рљ Р’РёС€РІР°РЅР°С‚С…Р°[en] РЅР° СЏР·С‹С‡РєРµ С‚РµР»СѓРіСѓ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Село Степанчиково и его обитатели (ТВ)
+## РЎРµР»Рѕ РЎС‚РµРїР°РЅС‡РёРєРѕРІРѕ Рё РµРіРѕ РѕР±РёС‚Р°С‚РµР»Рё (РўР’)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1973<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1973<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-телеспектакль актёров МХАТа,, режиссёрыВладимира Богомолов и Феликс Глямшин<br>
+С‚РµР»РµСЃРїРµРєС‚Р°РєР»СЊ Р°РєС‚С‘СЂРѕРІ РњРҐРђРўР°,, СЂРµР¶РёСЃСЃС‘СЂС‹Р’Р»Р°РґРёРјРёСЂР° Р‘РѕРіРѕРјРѕР»РѕРІ Рё Р¤РµР»РёРєСЃ Р“Р»СЏРјС€РёРЅ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Униженные и оскорблённые / Humillados y ofendidos
+## РЈРЅРёР¶РµРЅРЅС‹Рµ Рё РѕСЃРєРѕСЂР±Р»С‘РЅРЅС‹Рµ / Humillados y ofendidos
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1973<br>
-**Страна:** Испания
+**Р“РѕРґ:** 1973<br>
+**РЎС‚СЂР°РЅР°:** РСЃРїР°РЅРёСЏ
 
-фильм Пилар Миро (эпизод сериала «Роман»<br>
+С„РёР»СЊРј РџРёР»Р°СЂ РњРёСЂРѕ (СЌРїРёР·РѕРґ СЃРµСЂРёР°Р»Р° В«Р РѕРјР°РЅВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Дядюшкин сон (ТВ) / Str?ckuv sen
+## Р”СЏРґСЋС€РєРёРЅ СЃРѕРЅ (РўР’) / Str?ckuv sen
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1972<br>
-**Страна:** Чехословакия
+**Р“РѕРґ:** 1972<br>
+**РЎС‚СЂР°РЅР°:** Р§РµС…РѕСЃР»РѕРІР°РєРёСЏ
 
-фильм Петра Тучека<br>
+С„РёР»СЊРј РџРµС‚СЂР° РўСѓС‡РµРєР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Игрок
+## РРіСЂРѕРє
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1972<br>
-**Страна:** СССР, Чехословакия
+**Р“РѕРґ:** 1972<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР , Р§РµС…РѕСЃР»РѕРІР°РєРёСЏ
 
-фильм Алексея Баталова<br>
+С„РёР»СЊРј РђР»РµРєСЃРµСЏ Р‘Р°С‚Р°Р»РѕРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание ((ТВ) / Zlocin i kazna
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ ((РўР’) / Zlocin i kazna
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1972<br>
-**Страна:** Югославия
+**Р“РѕРґ:** 1972<br>
+**РЎС‚СЂР°РЅР°:** Р®РіРѕСЃР»Р°РІРёСЏ
 
-фильм Савы Мрмака[sr]<br>
+С„РёР»СЊРј РЎР°РІС‹ РњСЂРјР°РєР°[sr]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Игрок / El jugador
+## РРіСЂРѕРє / El jugador
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1971<br>
-**Страна:** Испания
+**Р“РѕРґ:** 1971<br>
+**РЎС‚СЂР°РЅР°:** РСЃРїР°РЅРёСЏ
 
-фильм Антонио Чика (5 эпизодов сериала «Роман»<br>
+С„РёР»СЊРј РђРЅС‚РѕРЅРёРѕ Р§РёРєР° (5 СЌРїРёР·РѕРґРѕРІ СЃРµСЂРёР°Р»Р° В«Р РѕРјР°РЅВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Нежная женщина (ТВ)/ Een zachtmoedige vrouw
+## РќРµР¶РЅР°СЏ Р¶РµРЅС‰РёРЅР° (РўР’)/ Een zachtmoedige vrouw
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1971<br>
-**Страна:** Бельгия
+**Р“РѕРґ:** 1971<br>
+**РЎС‚СЂР°РЅР°:** Р‘РµР»СЊРіРёСЏ
 
-фильм Роланда Верхаверта[fr]<br>
+С„РёР»СЊРј Р РѕР»Р°РЅРґР° Р’РµСЂС…Р°РІРµСЂС‚Р°[fr]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание (ТВ) / Crime et ch?timent
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ (РўР’) / Crime et ch?timent
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1971<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1971<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Стеллио Лоренци[en]<br>
+С„РёР»СЊРј РЎС‚РµР»Р»РёРѕ Р›РѕСЂРµРЅС†Рё[en]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание / Cr?men y castigo (ТВ)
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ / Cr?men y castigo (РўР’)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1971<br>
-**Страна:** Аргентина
+**Р“РѕРґ:** 1971<br>
+**РЎС‚СЂР°РЅР°:** РђСЂРіРµРЅС‚РёРЅР°
 
-фильм Алехандро Дория[es] (фрагмент сериала Высокая комедия[es]<br>
+С„РёР»СЊРј РђР»РµС…Р°РЅРґСЂРѕ Р”РѕСЂРёСЏ[es] (С„СЂР°РіРјРµРЅС‚ СЃРµСЂРёР°Р»Р° Р’С‹СЃРѕРєР°СЏ РєРѕРјРµРґРёСЏ[es]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание / Cr?men y castigo (ТВ)
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ / Cr?men y castigo (РўР’)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1971<br>
-**Страна:** Аргентина
+**Р“РѕРґ:** 1971<br>
+**РЎС‚СЂР°РЅР°:** РђСЂРіРµРЅС‚РёРЅР°
 
-фильм Марсело Домингеса (фрагмент сериала Великие романы / Las grandes novelas<br>
+С„РёР»СЊРј РњР°СЂСЃРµР»Рѕ Р”РѕРјРёРЅРіРµСЃР° (С„СЂР°РіРјРµРЅС‚ СЃРµСЂРёР°Р»Р° Р’РµР»РёРєРёРµ СЂРѕРјР°РЅС‹ / Las grandes novelas<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Униженные и оскорблённые (ТВ) / Ponizeni i navredeni
+## РЈРЅРёР¶РµРЅРЅС‹Рµ Рё РѕСЃРєРѕСЂР±Р»С‘РЅРЅС‹Рµ (РўР’) / Ponizeni i navredeni
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1971<br>
-**Страна:** Югославия
+**Р“РѕРґ:** 1971<br>
+**РЎС‚СЂР°РЅР°:** Р®РіРѕСЃР»Р°РІРёСЏ
 
-фильм Благоя Андреева<br>
+С„РёР»СЊРј Р‘Р»Р°РіРѕСЏ РђРЅРґСЂРµРµРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание / Crimen y castigo
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ / Crimen y castigo
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1970<br>
-**Страна:** Испания
+**Р“РѕРґ:** 1970<br>
+**РЎС‚СЂР°РЅР°:** РСЃРїР°РЅРёСЏ
 
-фильм Альберта Гонсалеса Вергеля[es] (15 эпизодов сериала «Роман»<br>
+С„РёР»СЊРј РђР»СЊР±РµСЂС‚Р° Р“РѕРЅСЃР°Р»РµСЃР° Р’РµСЂРіРµР»СЏ[es] (15 СЌРїРёР·РѕРґРѕРІ СЃРµСЂРёР°Р»Р° В«Р РѕРјР°РЅВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Степанчиково / Stepanchicovo (ТВ)
+## РЎС‚РµРїР°РЅС‡РёРєРѕРІРѕ / Stepanchicovo (РўР’)
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1970<br>
-**Страна:** Испания
+**Р“РѕРґ:** 1970<br>
+**РЎС‚СЂР°РЅР°:** РСЃРїР°РЅРёСЏ
 
-фильм Альфредо Кастеллона[es] (эпизод сериала «Роман»<br>
+С„РёР»СЊРј РђР»СЊС„СЂРµРґРѕ РљР°СЃС‚РµР»Р»РѕРЅР°[es] (СЌРїРёР·РѕРґ СЃРµСЂРёР°Р»Р° В«Р РѕРјР°РЅВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Вечный муж (ТВ) / Der ewige Gatte
+## Р’РµС‡РЅС‹Р№ РјСѓР¶ (РўР’) / Der ewige Gatte
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1969<br>
-**Страна:** ФРГ
+**Р“РѕРґ:** 1969<br>
+**РЎС‚СЂР°РЅР°:** Р¤Р Р“
 
-фильм Станислава Барабаша[sk]<br>
+С„РёР»СЊРј РЎС‚Р°РЅРёСЃР»Р°РІР° Р‘Р°СЂР°Р±Р°С€Р°[sk]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Из мёртвого дома / From the House of the Dead
+## РР· РјС‘СЂС‚РІРѕРіРѕ РґРѕРјР° / From the House of the Dead
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1969<br>
-**Страна:** США
+**Р“РѕРґ:** 1969<br>
+**РЎС‚СЂР°РЅР°:** РЎРЁРђ
 
-телефильм по опере Леоша Яначека Из мёртвого дома, которая, в свою очередь поставлена по повести Ф. М. Достоевского «Записки из мёртвого дома»<br>
+С‚РµР»РµС„РёР»СЊРј РїРѕ РѕРїРµСЂРµ Р›РµРѕС€Р° РЇРЅР°С‡РµРєР° РР· РјС‘СЂС‚РІРѕРіРѕ РґРѕРјР°, РєРѕС‚РѕСЂР°СЏ, РІ СЃРІРѕСЋ РѕС‡РµСЂРµРґСЊ РїРѕСЃС‚Р°РІР»РµРЅР° РїРѕ РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р—Р°РїРёСЃРєРё РёР· РјС‘СЂС‚РІРѕРіРѕ РґРѕРјР°В»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Кроткая
+## РљСЂРѕС‚РєР°СЏ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1969<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1969<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм-интерпретация Робера Брессона<br>
+С„РёР»СЊРј-РёРЅС‚РµСЂРїСЂРµС‚Р°С†РёСЏ Р РѕР±РµСЂР° Р‘СЂРµСЃСЃРѕРЅР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1969<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1969<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Льва Кулиджанова<br>
+С„РёР»СЊРј Р›СЊРІР° РљСѓР»РёРґР¶Р°РЅРѕРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Наставила рога под кроватью / Cuernos debajo de la cama
+## РќР°СЃС‚Р°РІРёР»Р° СЂРѕРіР° РїРѕРґ РєСЂРѕРІР°С‚СЊСЋ / Cuernos debajo de la cama
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1969<br>
-**Страна:** Мексика
+**Р“РѕРґ:** 1969<br>
+**РЎС‚СЂР°РЅР°:** РњРµРєСЃРёРєР°
 
-фильм Исмаэля Родригеса[es]<br>
+С„РёР»СЊРј РСЃРјР°СЌР»СЏ Р РѕРґСЂРёРіРµСЃР°[es]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Партнёр / Partner
+## РџР°СЂС‚РЅС‘СЂ / Partner
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1968<br>
-**Страна:** Италия
+**Р“РѕРґ:** 1968<br>
+**РЎС‚СЂР°РЅР°:** РС‚Р°Р»РёСЏ
 
-фильм Бернардо Бертолуччи по мотивам повести Ф. М. Достоеского «Двойник»<br>
+С„РёР»СЊРј Р‘РµСЂРЅР°СЂРґРѕ Р‘РµСЂС‚РѕР»СѓС‡С‡Рё РїРѕ РјРѕС‚РёРІР°Рј РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµСЃРєРѕРіРѕ В«Р”РІРѕР№РЅРёРєВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Игрок (ТВ) / The Gambler
+## РРіСЂРѕРє (РўР’) / The Gambler
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1968<br>
-**Страна:** Великобритания
+**Р“РѕРґ:** 1968<br>
+**РЎС‚СЂР°РЅР°:** Р’РµР»РёРєРѕР±СЂРёС‚Р°РЅРёСЏ
 
-сериал Майкла Фергюсона[en]<br>
+СЃРµСЂРёР°Р» РњР°Р№РєР»Р° Р¤РµСЂРіСЋСЃРѕРЅР°[en]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идиот (ТВ) / L’idiot
+## РРґРёРѕС‚ (РўР’) / LвЂ™idiot
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1968<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1968<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Андре Барсака<br>
+С„РёР»СЊРј РђРЅРґСЂРµ Р‘Р°СЂСЃР°РєР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идиот / Der Idiot
+## РРґРёРѕС‚ / Der Idiot
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1968<br>
-**Страна:** ФРГ
+**Р“РѕРґ:** 1968<br>
+**РЎС‚СЂР°РЅР°:** Р¤Р Р“
 
-телесериал Рольф фон Сюдов[de]<br>
+С‚РµР»РµСЃРµСЂРёР°Р» Р РѕР»СЊС„ С„РѕРЅ РЎСЋРґРѕРІ[de]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Странная женщина и мужчина под кроватью (ТВ) / Die fremde Frau und der Mann unterm Bett
+## РЎС‚СЂР°РЅРЅР°СЏ Р¶РµРЅС‰РёРЅР° Рё РјСѓР¶С‡РёРЅР° РїРѕРґ РєСЂРѕРІР°С‚СЊСЋ (РўР’) / Die fremde Frau und der Mann unterm Bett
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1968<br>
-**Страна:** ФРГ
+**Р“РѕРґ:** 1968<br>
+**РЎС‚СЂР°РЅР°:** Р¤Р Р“
 
-фильм Освальда Дёпке[de]<br>
+С„РёР»СЊРј РћСЃРІР°Р»СЊРґР° Р”С‘РїРєРµ[de]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Дядюшкин сон (ТВ) / A nagyb?csi ?lma
+## Р”СЏРґСЋС€РєРёРЅ СЃРѕРЅ (РўР’) / A nagyb?csi ?lma
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1967<br>
-**Страна:** Венгрия
+**Р“РѕРґ:** 1967<br>
+**РЎС‚СЂР°РЅР°:** Р’РµРЅРіСЂРёСЏ
 
-фильм Енё Хорвата<br>
+С„РёР»СЊРј Р•РЅС‘ РҐРѕСЂРІР°С‚Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Кроткая / Krotk?
+## РљСЂРѕС‚РєР°СЏ / Krotk?
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1967<br>
-**Страна:** Чехословакия
+**Р“РѕРґ:** 1967<br>
+**РЎС‚СЂР°РЅР°:** Р§РµС…РѕСЃР»РѕРІР°РєРёСЏ
 
-фильм Станислава Барабаша[sk]<br>
+С„РёР»СЊРј РЎС‚Р°РЅРёСЃР»Р°РІР° Р‘Р°СЂР°Р±Р°С€Р°[sk]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание (ТВ) / Rikos ja rangaistus
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ (РўР’) / Rikos ja rangaistus
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1967<br>
-**Страна:** Финляндия
+**Р“РѕРґ:** 1967<br>
+**РЎС‚СЂР°РЅР°:** Р¤РёРЅР»СЏРЅРґРёСЏ
 
 <br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Муж под кроватью[pl] (ТВ) / Maz pod l?zkiem
+## РњСѓР¶ РїРѕРґ РєСЂРѕРІР°С‚СЊСЋ[pl] (РўР’) / Maz pod l?zkiem
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1967<br>
-**Страна:** Польша
+**Р“РѕРґ:** 1967<br>
+**РЎС‚СЂР°РЅР°:** РџРѕР»СЊС€Р°
 
-короткометражный фильм Станислава Ружевича<br>
+РєРѕСЂРѕС‚РєРѕРјРµС‚СЂР°Р¶РЅС‹Р№ С„РёР»СЊРј РЎС‚Р°РЅРёСЃР»Р°РІР° Р СѓР¶РµРІРёС‡Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Игрок
+## РРіСЂРѕРє
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1966<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1966<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм-опера Юрия Богатыренко на музыкуСергея Прокофьева<br>
+С„РёР»СЊРј-РѕРїРµСЂР° Р®СЂРёСЏ Р‘РѕРіР°С‚С‹СЂРµРЅРєРѕ РЅР° РјСѓР·С‹РєСѓРЎРµСЂРіРµСЏ РџСЂРѕРєРѕС„СЊРµРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идиот
+## РРґРёРѕС‚
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1966<br>
-**Страна:** Великобритания
+**Р“РѕРґ:** 1966<br>
+**РЎС‚СЂР°РЅР°:** Р’РµР»РёРєРѕР±СЂРёС‚Р°РЅРёСЏ
 
-телесериал Алана Бриджеса<br>
+С‚РµР»РµСЃРµСЂРёР°Р» РђР»Р°РЅР° Р‘СЂРёРґР¶РµСЃР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Убийца / The Murderer
+## РЈР±РёР№С†Р° / The Murderer
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1966<br>
-**Страна:** Канада
+**Р“РѕРґ:** 1966<br>
+**РЎС‚СЂР°РЅР°:** РљР°РЅР°РґР°
 
-фильм Пола Элмонда[en] (эпизод сериала Фестиваль[en])<br>
+С„РёР»СЊРј РџРѕР»Р° Р­Р»РјРѕРЅРґР°[en] (СЌРїРёР·РѕРґ СЃРµСЂРёР°Р»Р° Р¤РµСЃС‚РёРІР°Р»СЊ[en])<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Скверный анекдот
+## РЎРєРІРµСЂРЅС‹Р№ Р°РЅРµРєРґРѕС‚
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1966<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1966<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм-комедия Александра Алова и Владимира Наумова<br>
+С„РёР»СЊРј-РєРѕРјРµРґРёСЏ РђР»РµРєСЃР°РЅРґСЂР° РђР»РѕРІР° Рё Р’Р»Р°РґРёРјРёСЂР° РќР°СѓРјРѕРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Вечный муж (ТВ) / De eeuwige echtgenoot
+## Р’РµС‡РЅС‹Р№ РјСѓР¶ (РўР’) / De eeuwige echtgenoot
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1965<br>
-**Страна:** Бельгия
+**Р“РѕРґ:** 1965<br>
+**РЎС‚СЂР°РЅР°:** Р‘РµР»СЊРіРёСЏ
 
 <br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Дядюшкин сон (ТВ) / Onkelchens Traum
+## Р”СЏРґСЋС€РєРёРЅ СЃРѕРЅ (РўР’) / Onkelchens Traum
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1965<br>
-**Страна:** ФРГ
+**Р“РѕРґ:** 1965<br>
+**РЎС‚СЂР°РЅР°:** Р¤Р Р“
 
-фильм Гюнтера Граверта<br>
+С„РёР»СЊРј Р“СЋРЅС‚РµСЂР° Р“СЂР°РІРµСЂС‚Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Игрок[it] (ТВ) / Il giocatore
+## РРіСЂРѕРє[it] (РўР’) / Il giocatore
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1965<br>
-**Страна:** Италия
+**Р“РѕРґ:** 1965<br>
+**РЎС‚СЂР°РЅР°:** РС‚Р°Р»РёСЏ
 
-фильм Эдмо Фенольо[it]<br>
+С„РёР»СЊРј Р­РґРјРѕ Р¤РµРЅРѕР»СЊРѕ[it]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание / Crimen y castigo
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ / Crimen y castigo
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1965<br>
-**Страна:** Испания
+**Р“РѕРґ:** 1965<br>
+**РЎС‚СЂР°РЅР°:** РСЃРїР°РЅРёСЏ
 
-фильм Альберта Гонсалеса Вергеля[es] (эпизод сериала Первый ряд[es])<br>
+С„РёР»СЊРј РђР»СЊР±РµСЂС‚Р° Р“РѕРЅСЃР°Р»РµСЃР° Р’РµСЂРіРµР»СЏ[es] (СЌРїРёР·РѕРґ СЃРµСЂРёР°Р»Р° РџРµСЂРІС‹Р№ СЂСЏРґ[es])<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Хозяин села (ТВ) / Il padrone del villaggio
+## РҐРѕР·СЏРёРЅ СЃРµР»Р° (РўР’) / Il padrone del villaggio
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1965<br>
-**Страна:** Италия
+**Р“РѕРґ:** 1965<br>
+**РЎС‚СЂР°РЅР°:** РС‚Р°Р»РёСЏ
 
-сериал Эдмо Фенольо[it] по повести «Село Степанчиково и его обитатели»<br>
+СЃРµСЂРёР°Р» Р­РґРјРѕ Р¤РµРЅРѕР»СЊРѕ[it] РїРѕ РїРѕРІРµСЃС‚Рё В«РЎРµР»Рѕ РЎС‚РµРїР°РЅС‡РёРєРѕРІРѕ Рё РµРіРѕ РѕР±РёС‚Р°С‚РµР»РёВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Вечный муж (ТВ) / O Eterno Marido
+## Р’РµС‡РЅС‹Р№ РјСѓР¶ (РўР’) / O Eterno Marido
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1964<br>
-**Страна:** Бразилия
+**Р“РѕРґ:** 1964<br>
+**РЎС‚СЂР°РЅР°:** Р‘СЂР°Р·РёР»РёСЏ
 
-фильм Ванды Космо[pt] (эпизод сериала Великий театр Тупи[pt])<br>
+С„РёР»СЊРј Р’Р°РЅРґС‹ РљРѕСЃРјРѕ[pt] (СЌРїРёР·РѕРґ СЃРµСЂРёР°Р»Р° Р’РµР»РёРєРёР№ С‚РµР°С‚СЂ РўСѓРїРё[pt])<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Враг / Непријатељ
+## Р’СЂР°Рі / РќРµРїСЂРёСР°С‚РµС™
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1964<br>
-**Страна:** Югославия
+**Р“РѕРґ:** 1964<br>
+**РЎС‚СЂР°РЅР°:** Р®РіРѕСЃР»Р°РІРёСЏ
 
-фильм Живоина Павловича по мотивам повести Ф. М. Достоеского «Двойник»<br>
+С„РёР»СЊРј Р–РёРІРѕРёРЅР° РџР°РІР»РѕРІРёС‡Р° РїРѕ РјРѕС‚РёРІР°Рј РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµСЃРєРѕРіРѕ В«Р”РІРѕР№РЅРёРєВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Игрок (ТВ) / A j?t?kos
+## РРіСЂРѕРє (РўР’) / A j?t?kos
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1964<br>
-**Страна:** Венгрия
+**Р“РѕРґ:** 1964<br>
+**РЎС‚СЂР°РЅР°:** Р’РµРЅРіСЂРёСЏ
 
-фильм Шандора Сёньи<br>
+С„РёР»СЊРј РЁР°РЅРґРѕСЂР° РЎС‘РЅСЊРё<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Нежная / Die Sanfte
+## РќРµР¶РЅР°СЏ / Die Sanfte
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1964<br>
-**Страна:** ФРГ
+**Р“РѕРґ:** 1964<br>
+**РЎС‚СЂР°РЅР°:** Р¤Р Р“
 
-фильм Вилли Шмидта<br>
+С„РёР»СЊРј Р’РёР»Р»Рё РЁРјРёРґС‚Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание| / Crime and Punishment
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ| / Crime and Punishment
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1964<br>
-**Страна:** Великобритания
+**Р“РѕРґ:** 1964<br>
+**РЎС‚СЂР°РЅР°:** Р’РµР»РёРєРѕР±СЂРёС‚Р°РЅРёСЏ
 
-фильм Сирила Коука (эпизод сериала ITV Пьеса недели[en])<br>
+С„РёР»СЊРј РЎРёСЂРёР»Р° РљРѕСѓРєР° (СЌРїРёР·РѕРґ СЃРµСЂРёР°Р»Р° ITV РџСЊРµСЃР° РЅРµРґРµР»Рё[en])<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Что-то, о чём нельзя говорить (ТВ) / Nesto o cemu se ne moze govoriti
+## Р§С‚Рѕ-С‚Рѕ, Рѕ С‡С‘Рј РЅРµР»СЊР·СЏ РіРѕРІРѕСЂРёС‚СЊ (РўР’) / Nesto o cemu se ne moze govoriti
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1964<br>
-**Страна:** Югославия
+**Р“РѕРґ:** 1964<br>
+**РЎС‚СЂР°РЅР°:** Р®РіРѕСЃР»Р°РІРёСЏ
 
-фильм Савы Мрмака[sr]}<br>
+С„РёР»СЊРј РЎР°РІС‹ РњСЂРјР°РєР°[sr]}<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание[it] (телесериал) / Delitto e castigo
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ[it] (С‚РµР»РµСЃРµСЂРёР°Р») / Delitto e castigo
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1963<br>
-**Страна:** Италия
+**Р“РѕРґ:** 1963<br>
+**РЎС‚СЂР°РЅР°:** РС‚Р°Р»РёСЏ
 
-фильм Антонио Джулио Маджано<br>
+С„РёР»СЊРј РђРЅС‚РѕРЅРёРѕ Р”Р¶СѓР»РёРѕ РњР°РґР¶Р°РЅРѕ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание| / Crime e Castigo
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ| / Crime e Castigo
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1963<br>
-**Страна:** Бразилия
+**Р“РѕРґ:** 1963<br>
+**РЎС‚СЂР°РЅР°:** Р‘СЂР°Р·РёР»РёСЏ
 
-фильм Луиса Галлона и Ванды Космо[pt] (эпизод сериала Великий театр Тупи[pt])<br>
+С„РёР»СЊРј Р›СѓРёСЃР° Р“Р°Р»Р»РѕРЅР° Рё Р’Р°РЅРґС‹ РљРѕСЃРјРѕ[pt] (СЌРїРёР·РѕРґ СЃРµСЂРёР°Р»Р° Р’РµР»РёРєРёР№ С‚РµР°С‚СЂ РўСѓРїРё[pt])<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Два критических дня (ТВ) / Dva presudna dana
+## Р”РІР° РєСЂРёС‚РёС‡РµСЃРєРёС… РґРЅСЏ (РўР’) / Dva presudna dana
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1963<br>
-**Страна:** Югославия
+**Р“РѕРґ:** 1963<br>
+**РЎС‚СЂР°РЅР°:** Р®РіРѕСЃР»Р°РІРёСЏ
 
-фильм Савы Мрмака по повести «Село Степанчиково и его обитатели»<br>
+С„РёР»СЊРј РЎР°РІС‹ РњСЂРјР°РєР° РїРѕ РїРѕРІРµСЃС‚Рё В«РЎРµР»Рѕ РЎС‚РµРїР°РЅС‡РёРєРѕРІРѕ Рё РµРіРѕ РѕР±РёС‚Р°С‚РµР»РёВ»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Вечный муж (ТВ) / Den evige ?gtemand
+## Р’РµС‡РЅС‹Р№ РјСѓР¶ (РўР’) / Den evige ?gtemand
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1962<br>
-**Страна:** Дания
+**Р“РѕРґ:** 1962<br>
+**РЎС‚СЂР°РЅР°:** Р”Р°РЅРёСЏ
 
-фильм Габриэля Акселя<br>
+С„РёР»СЊРј Р“Р°Р±СЂРёСЌР»СЏ РђРєСЃРµР»СЏ<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Игрок (ТВ) / (фр. Le Joueur
+## РРіСЂРѕРє (РўР’) / (С„СЂ. Le Joueur
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1962<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1962<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Франсуа Гира<br>
+С„РёР»СЊРј Р¤СЂР°РЅСЃСѓР° Р“РёСЂР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Чужая жена и муж под кроватью (ТВ) / Cudza ?ona i m?? pod ???kiem
+## Р§СѓР¶Р°СЏ Р¶РµРЅР° Рё РјСѓР¶ РїРѕРґ РєСЂРѕРІР°С‚СЊСЋ (РўР’) / Cudza ?ona i m?? pod ???kiem
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1962<br>
-**Страна:** Польша
+**Р“РѕРґ:** 1962<br>
+**РЎС‚СЂР°РЅР°:** РџРѕР»СЊС€Р°
 
-фильм Анджея Вайды<br>
+С„РёР»СЊРј РђРЅРґР¶РµСЏ Р’Р°Р№РґС‹<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Вечный муж (ТВ) / Den evige ektemann
+## Р’РµС‡РЅС‹Р№ РјСѓР¶ (РўР’) / Den evige ektemann
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1961<br>
-**Страна:** Норвегия
+**Р“РѕРґ:** 1961<br>
+**РЎС‚СЂР°РЅР°:** РќРѕСЂРІРµРіРёСЏ
 
-фильм Герхарда Кноопа[nl]<br>
+С„РёР»СЊРј Р“РµСЂС…Р°СЂРґР° РљРЅРѕРѕРїР°[nl]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Из мёртвого дома / Aus einem Totenhaus
+## РР· РјС‘СЂС‚РІРѕРіРѕ РґРѕРјР° / Aus einem Totenhaus
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1961<br>
-**Страна:** ФРГ
+**Р“РѕРґ:** 1961<br>
+**РЎС‚СЂР°РЅР°:** Р¤Р Р“
 
-телефильм Теодора Грёдлера[de] по опере Леоша Яначека Из мёртвого дома, которая, в свою очередь поставлена по повести Ф. М. Достоевского «Записки из мёртвого дома»<br>
+С‚РµР»РµС„РёР»СЊРј РўРµРѕРґРѕСЂР° Р“СЂС‘РґР»РµСЂР°[de] РїРѕ РѕРїРµСЂРµ Р›РµРѕС€Р° РЇРЅР°С‡РµРєР° РР· РјС‘СЂС‚РІРѕРіРѕ РґРѕРјР°, РєРѕС‚РѕСЂР°СЏ, РІ СЃРІРѕСЋ РѕС‡РµСЂРµРґСЊ РїРѕСЃС‚Р°РІР»РµРЅР° РїРѕ РїРѕРІРµСЃС‚Рё Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«Р—Р°РїРёСЃРєРё РёР· РјС‘СЂС‚РІРѕРіРѕ РґРѕРјР°В»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Униженные и оскорблённые (ТВ) / De vernederden en de gekrenkten
+## РЈРЅРёР¶РµРЅРЅС‹Рµ Рё РѕСЃРєРѕСЂР±Р»С‘РЅРЅС‹Рµ (РўР’) / De vernederden en de gekrenkten
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1961<br>
-**Страна:** Бельгия
+**Р“РѕРґ:** 1961<br>
+**РЎС‚СЂР°РЅР°:** Р‘РµР»СЊРіРёСЏ
 
-фильм Сенне Руффара<br>
+С„РёР»СЊРј РЎРµРЅРЅРµ Р СѓС„С„Р°СЂР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Крокодил[sr] / Krokodil
+## РљСЂРѕРєРѕРґРёР»[sr] / Krokodil
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1960<br>
-**Страна:** Югославия
+**Р“РѕРґ:** 1960<br>
+**РЎС‚СЂР°РЅР°:** Р®РіРѕСЃР»Р°РІРёСЏ
 
-фильм Антона Марти (ТВ)<br>
+С„РёР»СЊРј РђРЅС‚РѕРЅР° РњР°СЂС‚Рё (РўР’)<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Кроткая
+## РљСЂРѕС‚РєР°СЏ
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1960<br>
-**Страна:** СССР
+**Р“РѕРґ:** 1960<br>
+**РЎС‚СЂР°РЅР°:** РЎРЎРЎР 
 
-фильм Александра Борисова<br>
+С„РёР»СЊРј РђР»РµРєСЃР°РЅРґСЂР° Р‘РѕСЂРёСЃРѕРІР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## История Наташи (ТВ) / L'histoire de Natacha
+## РСЃС‚РѕСЂРёСЏ РќР°С‚Р°С€Рё (РўР’) / L'histoire de Natacha
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1960<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1960<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Франсуа Гира[en] по мотивам романа Ф. М. Достоевского «Униженные и оскорблённыё»<br>
+С„РёР»СЊРј Р¤СЂР°РЅСЃСѓР° Р“РёСЂР°[en] РїРѕ РјРѕС‚РёРІР°Рј СЂРѕРјР°РЅР° Р¤. Рњ. Р”РѕСЃС‚РѕРµРІСЃРєРѕРіРѕ В«РЈРЅРёР¶РµРЅРЅС‹Рµ Рё РѕСЃРєРѕСЂР±Р»С‘РЅРЅС‹С‘В»<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Дядюшкин сон (фильм, 1959)) (ТВ)[sr]
+## Р”СЏРґСЋС€РєРёРЅ СЃРѕРЅ (С„РёР»СЊРј, 1959)) (РўР’)[sr]
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1959<br>
-**Страна:** Югославия
+**Р“РѕРґ:** 1959<br>
+**РЎС‚СЂР°РЅР°:** Р®РіРѕСЃР»Р°РІРёСЏ
 
-фильм Дэниэла Марусича<br>
+С„РёР»СЊРј Р”СЌРЅРёСЌР»Р° РњР°СЂСѓСЃРёС‡Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Идиот[it]
+## РРґРёРѕС‚[it]
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1959<br>
-**Страна:** Италия
+**Р“РѕРґ:** 1959<br>
+**РЎС‚СЂР°РЅР°:** РС‚Р°Р»РёСЏ
 
-телесериал Джакомо Ваччари[it]<br>
+С‚РµР»РµСЃРµСЂРёР°Р» Р”Р¶Р°РєРѕРјРѕ Р’Р°С‡С‡Р°СЂРё[it]<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Преступление и наказание по-американски / Crime and Punishment U.S.A.
+## РџСЂРµСЃС‚СѓРїР»РµРЅРёРµ Рё РЅР°РєР°Р·Р°РЅРёРµ РїРѕ-Р°РјРµСЂРёРєР°РЅСЃРєРё / Crime and Punishment U.S.A.
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1959<br>
-**Страна:** США
+**Р“РѕРґ:** 1959<br>
+**РЎС‚СЂР°РЅР°:** РЎРЁРђ
 
-фильм-интепрпретация Дениса Сэндерса<br>
+С„РёР»СЊРј-РёРЅС‚РµРїСЂРїСЂРµС‚Р°С†РёСЏ Р”РµРЅРёСЃР° РЎСЌРЅРґРµСЂСЃР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Раскольникофф (ТВ) / Raskolnikoff
+## Р Р°СЃРєРѕР»СЊРЅРёРєРѕС„С„ (РўР’) / Raskolnikoff
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1959<br>
-**Страна:** ФРГ
+**Р“РѕРґ:** 1959<br>
+**РЎС‚СЂР°РЅР°:** Р¤Р Р“
 
-фильм Франца Петера Вирта<br>
+С„РёР»СЊРј Р¤СЂР°РЅС†Р° РџРµС‚РµСЂР° Р’РёСЂС‚Р°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Карманник / Pickpocket
+## РљР°СЂРјР°РЅРЅРёРє / Pickpocket
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1959<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1959<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Робера Брессона<br>
+С„РёР»СЊРј Р РѕР±РµСЂР° Р‘СЂРµСЃСЃРѕРЅР°<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Униженные и оскорблённые (ТВ) /Umiliati e offesi
+## РЈРЅРёР¶РµРЅРЅС‹Рµ Рё РѕСЃРєРѕСЂР±Р»С‘РЅРЅС‹Рµ (РўР’) /Umiliati e offesi
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1958<br>
-**Страна:** Италия
+**Р“РѕРґ:** 1958<br>
+**РЎС‚СЂР°РЅР°:** РС‚Р°Р»РёСЏ
 
-мини-сериал Витторио Коттафави<br>
+РјРёРЅРё-СЃРµСЂРёР°Р» Р’РёС‚С‚РѕСЂРёРѕ РљРѕС‚С‚Р°С„Р°РІРё<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
 
-## Хозяйка (ТВ) / La logeuse
+## РҐРѕР·СЏР№РєР° (РўР’) / La logeuse
 
 <img src="" alt="drawing" width="225" align="right"/>
 
-**Год:** 1958<br>
-**Страна:** Франция
+**Р“РѕРґ:** 1958<br>
+**РЎС‚СЂР°РЅР°:** Р¤СЂР°РЅС†РёСЏ
 
-фильм Жан-Кристофа Эверти<br>
+С„РёР»СЊРј Р–Р°РЅ-РљСЂРёСЃС‚РѕС„Р° Р­РІРµСЂС‚Рё<br>
 <br><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/playbutt.png' border='0'></a><a href=''><img src='https://github.com/MaksPV/Dostoevsky/raw/main/wikiread.png' border='0'></a><a href=''><img src='https://rating.kinopoisk.ru/.gif' border='0'></a><br clear="right"/>
