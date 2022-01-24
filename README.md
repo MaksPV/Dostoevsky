@@ -21,7 +21,7 @@
 # Белые ночи
 ## Петербургская ночь
 
-<img src="https://img51994.domkino.tv/img/2008-03-10/fmt_97_peterburgskaya_noch__2.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://img51994.domkino.tv/img/2008-03-10/fmt_97_peterburgskaya_noch__2.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1934<br>
@@ -41,7 +41,7 @@
 
 ## Белые ночи / ориг. Le notti bianche
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/d/d9/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8%C2%BB.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/d/d9/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8%C2%BB.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама<br>
 **Год:** 1957<br>
@@ -63,7 +63,7 @@
 
 ## Белые ночи
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/4/43/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC_%D0%BF%D0%BB%D0%B0%D0%BA%D0%B0%D1%82.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/4/43/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC_%D0%BF%D0%BB%D0%B0%D0%BA%D0%B0%D1%82.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама<br>
 **Год:** 1959<br>
@@ -83,7 +83,7 @@
 
 ## Четыре ночи мечтателя / ориг. Quatre nuits d'un rêveur
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/100607.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/100607.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама<br>
 **Год:** 1971<br>
@@ -103,7 +103,7 @@
 
 ## Белые ночи. Сентиментальный роман из воспоминаний мечтателя (ТВ)
 
-<img src="https://i.ytimg.com/vi/hmangPoyCoA/hqdefault.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://i.ytimg.com/vi/hmangPoyCoA/hqdefault.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Год:** 1987<br>
 **Страна:** СССР
@@ -113,7 +113,7 @@
 
 ## Белые ночи
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/7/72/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_01.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/7/72/%D0%91%D0%B5%D0%BB%D1%8B%D0%B5_%D0%BD%D0%BE%D1%87%D0%B8_01.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1992<br>
@@ -133,7 +133,7 @@
 
 ## Возлюбленная / ориг. Saawariya
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/263315.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/263315.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** мелодрама, мюзикл<br>
 **Год:** 2007<br>
@@ -154,7 +154,7 @@
 # Бесы
 ## Бесы / ориг. Les possédés
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/10286.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/10286.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1987<br>
@@ -174,7 +174,7 @@
 
 ## Бесы
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/41496.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/41496.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1992<br>
@@ -196,7 +196,7 @@
 
 ## Бесы
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/thumb/8/87/%D0%91%D0%B5%D1%81%D1%8B_%D0%BF%D0%BE%D1%81%D1%82%D0%B5%D1%80_2006.jpeg/266px-%D0%91%D0%B5%D1%81%D1%8B_%D0%BF%D0%BE%D1%81%D1%82%D0%B5%D1%80_2006.jpeg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/thumb/8/87/%D0%91%D0%B5%D1%81%D1%8B_%D0%BF%D0%BE%D1%81%D1%82%D0%B5%D1%80_2006.jpeg/266px-%D0%91%D0%B5%D1%81%D1%8B_%D0%BF%D0%BE%D1%81%D1%82%D0%B5%D1%80_2006.jpeg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 2007<br>
@@ -216,7 +216,7 @@
 
 ## Бесы
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/c986f936-c602-484d-a76e-24daa8d88ae3/1920x" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/c986f936-c602-484d-a76e-24daa8d88ae3/1920x" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, детектив<br>
 **Год:** 2014<br>
@@ -237,7 +237,7 @@
 # Братья Карамазовы
 ## Братья Карамазовы / ориг. The Brothers Karamazov
 
-<img src="https://www.kino-teatr.ru/movie/posters/big/4/19344.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://www.kino-teatr.ru/movie/posters/big/4/19344.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама<br>
 **Год:** 1958<br>
@@ -259,7 +259,7 @@
 
 ## Братья Карамазовы
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/d/d9/%D0%91%D1%80%D0%B0%D1%82%D1%8C%D1%8F_%D0%9A%D0%B0%D1%80%D0%B0%D0%BC%D0%B0%D0%B7%D0%BE%D0%B2%D1%8B_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC_%D0%BF%D0%BB%D0%B0%D0%BA%D0%B0%D1%82.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/d/d9/%D0%91%D1%80%D0%B0%D1%82%D1%8C%D1%8F_%D0%9A%D0%B0%D1%80%D0%B0%D0%BC%D0%B0%D0%B7%D0%BE%D0%B2%D1%8B_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC_%D0%BF%D0%BB%D0%B0%D0%BA%D0%B0%D1%82.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1968<br>
@@ -279,7 +279,7 @@
 
 ## Мальчики
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/39cfafd5-b0dc-422e-b53e-0eaca6704323/300x450" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/39cfafd5-b0dc-422e-b53e-0eaca6704323/300x450" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1990<br>
@@ -299,7 +299,7 @@
 
 ## Братья Карамазовы / ориг. Karamazovi
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/thumb/1/1c/Karamazoviplakat.jpg/800px-Karamazoviplakat.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/thumb/1/1c/Karamazoviplakat.jpg/800px-Karamazoviplakat.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 2008<br>
@@ -319,7 +319,7 @@
 
 ## Братья Карамазовы
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/9221d709-9cff-460b-812a-6edfe9810c95/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/9221d709-9cff-460b-812a-6edfe9810c95/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 2008<br>
@@ -340,7 +340,7 @@ XIX век. В уездном российском городе разгораю
 # Вечный муж
 ## Месть женщины / ориг. La vengeance d'une femme
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/d11bbe36-c8e8-4bd7-80f7-51d6fed014e5/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/d11bbe36-c8e8-4bd7-80f7-51d6fed014e5/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1990<br>
@@ -360,7 +360,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Вечный муж
 
-<img src="https://www.kino-teatr.ru/movie/posters/big/8/928.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://www.kino-teatr.ru/movie/posters/big/8/928.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1990<br>
@@ -382,7 +382,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Вечный муж / ориг. L'éternel mari
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/e198e8ce-44a1-4d88-bec6-bf4bca1271e4/300x450" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/e198e8ce-44a1-4d88-bec6-bf4bca1271e4/300x450" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1993<br>
@@ -401,7 +401,7 @@ XIX век. В уездном российском городе разгораю
 # Двойник
 ## Партнер / ориг. Partner.
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/75aad585-7a21-4831-942f-fa446ad3177c/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/75aad585-7a21-4831-942f-fa446ad3177c/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1968<br>
@@ -421,7 +421,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Двойник
 
-<img src="https://i.ytimg.com/vi/Lh2o-rviFHY/sddefault.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://i.ytimg.com/vi/Lh2o-rviFHY/sddefault.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1989<br>
@@ -439,7 +439,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Двойник / ориг. The Double
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/602694.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/602694.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** триллер, драма<br>
 **Год:** 2013<br>
@@ -460,7 +460,7 @@ XIX век. В уездном российском городе разгораю
 # Дядюшкин сон
 ## Дядюшкин сон
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/0dac787e-016c-4a14-bad0-375c56cf6699/300x450" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/0dac787e-016c-4a14-bad0-375c56cf6699/300x450" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1966<br>
@@ -480,7 +480,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Дядюшкин сон
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/4b0be409-b7ef-40f8-8c33-f88bb980bab4/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/4b0be409-b7ef-40f8-8c33-f88bb980bab4/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, комедия<br>
 **Год:** 1981<br>
@@ -499,7 +499,7 @@ XIX век. В уездном российском городе разгораю
 # Записки из Мертвого дома
 ## Мёртвый дом (тюрьма народов)
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/1932_%D0%9C%D0%B5%D1%80%D1%82%D0%B2%D1%8B%D0%B9_%D0%B4%D0%BE%D0%BC%2C_%D0%A2%D1%8E%D1%80%D1%8C%D0%BC%D0%B0_%D0%BD%D0%B0%D1%80%D0%BE%D0%B4%D0%BE%D0%B2.webm/640px--1932_%D0%9C%D0%B5%D1%80%D1%82%D0%B2%D1%8B%D0%B9_%D0%B4%D0%BE%D0%BC%2C_%D0%A2%D1%8E%D1%80%D1%8C%D0%BC%D0%B0_%D0%BD%D0%B0%D1%80%D0%BE%D0%B4%D0%BE%D0%B2.webm.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/1932_%D0%9C%D0%B5%D1%80%D1%82%D0%B2%D1%8B%D0%B9_%D0%B4%D0%BE%D0%BC%2C_%D0%A2%D1%8E%D1%80%D1%8C%D0%BC%D0%B0_%D0%BD%D0%B0%D1%80%D0%BE%D0%B4%D0%BE%D0%B2.webm/640px--1932_%D0%9C%D0%B5%D1%80%D1%82%D0%B2%D1%8B%D0%B9_%D0%B4%D0%BE%D0%BC%2C_%D0%A2%D1%8E%D1%80%D1%8C%D0%BC%D0%B0_%D0%BD%D0%B0%D1%80%D0%BE%D0%B4%D0%BE%D0%B2.webm.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Год:** 1931<br>
 **Страна:** СССР
@@ -510,7 +510,7 @@ XIX век. В уездном российском городе разгораю
 # Записки из подполья
 ## День и ночь / ориг. Jour et nuit
 
-<img src="https://s1.afisha.ru/mediastorage/83/02/d224bd1e1ed84ed9b3e6fe9c0283.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://s1.afisha.ru/mediastorage/83/02/d224bd1e1ed84ed9b3e6fe9c0283.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама<br>
 **Год:** 1986<br>
@@ -527,7 +527,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Внутри / ориг. Yeralti
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/596518.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/596518.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 2012<br>
@@ -548,7 +548,7 @@ XIX век. В уездном российском городе разгораю
 # Игрок
 ## Большой грешник / ориг. The Great Sinner
 
-<img src="https://www.kino-teatr.ru/movie/poster/16881/36031.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://www.kino-teatr.ru/movie/poster/16881/36031.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1949<br>
@@ -568,7 +568,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Игрок / ориг. Le joueur
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/5282a4c2-9bdd-4d49-8377-14b5e386dc45/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/5282a4c2-9bdd-4d49-8377-14b5e386dc45/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1958<br>
@@ -588,7 +588,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Игрок
 
-<img src="https://i.ytimg.com/vi/xlgFjaivrtc/hqdefault.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://i.ytimg.com/vi/xlgFjaivrtc/hqdefault.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мюзикл<br>
 **Год:** 1966<br>
@@ -606,7 +606,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Игрок / ориг. Igrok
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1773646/989bdbc3-e785-42cf-9b2d-240915995365/816x459" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1773646/989bdbc3-e785-42cf-9b2d-240915995365/816x459" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1972<br>
@@ -626,7 +626,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Игрок / ориг. The Gambler
 
-<img src="https://m.media-amazon.com/images/M/MV5BYzU1MDBiYTAtZjczOS00OGUyLTkxYWEtNjgyNTA3ZWU5YzgwXkEyXkFqcGdeQXVyMjI4MjA5MzA@._V1_.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://m.media-amazon.com/images/M/MV5BYzU1MDBiYTAtZjczOS00OGUyLTkxYWEtNjgyNTA3ZWU5YzgwXkEyXkFqcGdeQXVyMjI4MjA5MzA@._V1_.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, криминал<br>
 **Год:** 1974<br>
@@ -647,7 +647,7 @@ XIX век. В уездном российском городе разгораю
 # Идиот
 ## Идиот
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/5/50/Idiot_Chardynin.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/commons/5/50/Idiot_Chardynin.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, короткометражка<br>
 **Год:** 1910<br>
@@ -665,7 +665,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Идиот / ориг. L' Idiot
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/142551.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/142551.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1946<br>
@@ -685,7 +685,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Идиот / ориг. Hakuchi
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/b/b6/Hakuchi_poster.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/commons/b/b6/Hakuchi_poster.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама<br>
 **Год:** 1951<br>
@@ -707,7 +707,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Идиот
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/5/5a/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D0%BF%D0%B5%D1%80%D0%B2%D0%BE%D0%B9_%D1%87%D0%B0%D1%81%D1%82%D0%B8_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%98%D0%B4%D0%B8%D0%BE%D1%82%C2%BB_%281958%29.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/5/5a/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D0%BF%D0%B5%D1%80%D0%B2%D0%BE%D0%B9_%D1%87%D0%B0%D1%81%D1%82%D0%B8_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%98%D0%B4%D0%B8%D0%BE%D1%82%C2%BB_%281958%29.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1958<br>
@@ -727,7 +727,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Идиот
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/5bcbce6f-2005-4429-88dd-ee3df0351754/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/5bcbce6f-2005-4429-88dd-ee3df0351754/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1979<br>
@@ -745,7 +745,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Шальная любовь / ориг. L'amour braque
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/17d7758c-820b-46ce-b9dd-86b60fa34448/300x450" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/17d7758c-820b-46ce-b9dd-86b60fa34448/300x450" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама, комедия<br>
 **Год:** 1985<br>
@@ -767,7 +767,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Даун Хаус
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/41149.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/41149.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** комедия<br>
 **Год:** 2001<br>
@@ -787,7 +787,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Идиот
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/77051.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/77051.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 2003<br>
@@ -808,7 +808,7 @@ XIX век. В уездном российском городе разгораю
 # Крокодил
 ## Крокодил
 
-<img src="https://s5.vcdn.biz/static/f/1320093581/image.jpg/pt/r300x423x4" alt="drawing" width="225" align="right"/>
+<img src="https://s5.vcdn.biz/static/f/1320093581/image.jpg/pt/r300x423x4" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** мультфильм, короткометражка<br>
 **Год:** 1991<br>
@@ -826,7 +826,7 @@ XIX век. В уездном российском городе разгораю
 # Кроткая
 ## Кроткая
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/9/93/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%9A%D1%80%D0%BE%D1%82%D0%BA%D0%B0%D1%8F%C2%BB_%28%D0%A1%D0%A1%D0%A1%D0%A0%2C_1960%29.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/9/93/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%9A%D1%80%D0%BE%D1%82%D0%BA%D0%B0%D1%8F%C2%BB_%28%D0%A1%D0%A1%D0%A1%D0%A0%2C_1960%29.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1960<br>
@@ -846,7 +846,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Кроткая / ориг. Krotká
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/6e739065-ac02-4535-89d2-cefce2ad92c4/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/6e739065-ac02-4535-89d2-cefce2ad92c4/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1969<br>
@@ -865,7 +865,7 @@ XIX век. В уездном российском городе разгораю
 
 ## Кроткая / ориг. Une femme douce
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/e03227b4-4570-4d4c-92fd-e24d93bf9a5f/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1900788/e03227b4-4570-4d4c-92fd-e24d93bf9a5f/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама<br>
 **Год:** 1969<br>
@@ -885,7 +885,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Кроткая / ориг. Lagodna
 
-<img src="https://ic.pics.livejournal.com/altereos/9308464/310246/310246_original.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://ic.pics.livejournal.com/altereos/9308464/310246/310246_original.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** мультфильм, короткометражка<br>
 **Год:** 1985<br>
@@ -904,7 +904,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Кроткая
 
-<img src="https://s1.livelib.ru/boocover/1001651598/o/d261/Fjodor_Dostoevskij__Krotkaya_audiokniga_MR3.jpeg" alt="drawing" width="225" align="right"/>
+<img src="https://s1.livelib.ru/boocover/1001651598/o/d261/Fjodor_Dostoevskij__Krotkaya_audiokniga_MR3.jpeg" border="3" alt="drawing" width="225" align="right"/>
 
 **Год:** 1992<br>
 **Страна:** Россия, Грузия, Италия
@@ -914,7 +914,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Кроткая
 
-<img src="https://www.kino-teatr.ru/movie/poster/3305.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://www.kino-teatr.ru/movie/poster/3305.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мюзикл<br>
 **Год:** 2000<br>
@@ -932,7 +932,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Кроткая
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/1007433.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/1007433.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, детектив<br>
 **Год:** 2017<br>
@@ -953,12 +953,12 @@ Cбивчивый монолог мужчины у безжизненного т
 # Подросток
 ## Подросток
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/e/e6/%D0%9F%D0%BE%D0%B4%D1%80%D0%BE%D1%81%D1%82%D0%BE%D0%BA.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/e/e6/%D0%9F%D0%BE%D0%B4%D1%80%D0%BE%D1%81%D1%82%D0%BE%D0%BA.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1983<br>
 **Страна:** СССР<br>
-**Продолжительность:** None минут<br>
+**Продолжительность:** - минут<br>
 **Кинопоиск**: 8.1<br>
 **IMDB**: 8.2<br>
 **Критики**: 8.2<br>
@@ -976,7 +976,7 @@ Cбивчивый монолог мужчины у безжизненного т
 # Преступление и наказание
 ## Раскольников / ориг. Raskolnikow
 
-<img src="https://www.kino-teatr.ru/movie/kadr/9821/pv_468432.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://www.kino-teatr.ru/movie/kadr/9821/pv_468432.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1923<br>
@@ -996,7 +996,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Преступление и наказание / ориг. Crime and Punishment
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/4af1c493-c70d-4e7b-8122-f2c56292cfe1/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/4af1c493-c70d-4e7b-8122-f2c56292cfe1/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, криминал<br>
 **Год:** 1935<br>
@@ -1016,7 +1016,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Преступление и наказание
 
-<img src="https://i.ytimg.com/vi/yVCuIJBoiiM/hqdefault.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://i.ytimg.com/vi/yVCuIJBoiiM/hqdefault.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** комедия, короткометражка<br>
 **Год:** 1940<br>
@@ -1036,7 +1036,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Страх / ориг. Fear
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1629390/d2498b54-2ea1-4dbc-89ff-a5d63a916f41/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1629390/d2498b54-2ea1-4dbc-89ff-a5d63a916f41/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, детектив, фильм-нуар<br>
 **Год:** 1946<br>
@@ -1054,7 +1054,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Преступление и наказание / ориг. Crime et châtiment
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/158905.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/158905.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, криминал<br>
 **Год:** 1956<br>
@@ -1074,7 +1074,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Карманник / ориг. Pickpocket
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/e/ef/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%9A%D0%B0%D1%80%D0%BC%D0%B0%D0%BD%D0%BD%D0%B8%D0%BA%C2%BB_%28%D0%A4%D1%80%D0%B0%D0%BD%D1%86%D0%B8%D1%8F%2C_1959%29.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/e/ef/%D0%9F%D0%BE%D1%81%D1%82%D0%B5%D1%80_%D1%84%D0%B8%D0%BB%D1%8C%D0%BC%D0%B0_%C2%AB%D0%9A%D0%B0%D1%80%D0%BC%D0%B0%D0%BD%D0%BD%D0%B8%D0%BA%C2%BB_%28%D0%A4%D1%80%D0%B0%D0%BD%D1%86%D0%B8%D1%8F%2C_1959%29.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, криминал<br>
 **Год:** 1959<br>
@@ -1094,7 +1094,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Преступление и наказание
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/e1fcce6c-15b0-4aee-aeb2-d5ef4756d53a/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/e1fcce6c-15b0-4aee-aeb2-d5ef4756d53a/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1969<br>
@@ -1114,7 +1114,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Преступление и наказание / ориг. Rikos ja rangaistus
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1898899/94c4fb18-562a-4d43-acb9-a8494adec439/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1898899/94c4fb18-562a-4d43-acb9-a8494adec439/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, криминал<br>
 **Год:** 1983<br>
@@ -1134,7 +1134,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Преступление и наказание / ориг. Zbrodnia i kara
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/66395.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/66395.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** мультфильм, короткометражка<br>
 **Год:** 2000<br>
@@ -1154,7 +1154,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Преступление и наказание / ориг. Crime and Punishment
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/327456.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/327456.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, криминал<br>
 **Год:** 2002<br>
@@ -1174,7 +1174,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Преступление и наказание
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/260310.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/260310.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 2007<br>
@@ -1194,7 +1194,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Студент / ориг. Student
 
-<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/678416.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://kinopoiskapiunofficial.tech/images/posters/kp/678416.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 2012<br>
@@ -1215,7 +1215,7 @@ Cбивчивый монолог мужчины у безжизненного т
 # Село Степанчиково и его обитатели
 ## Село Степанчиково и его обитатели
 
-<img src="https://www.vokrug.tv/pic/product/1/e/7/1/1e714e0cce61fcda0a63db8753706bfe.jpeg" alt="drawing" width="225" align="right"/>
+<img src="https://www.vokrug.tv/pic/product/1/e/7/1/1e714e0cce61fcda0a63db8753706bfe.jpeg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** комедия<br>
 **Год:** 1973<br>
@@ -1235,7 +1235,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Село Степанчиково и его обитатели
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1773646/7f825bcc-b3a4-4546-a80a-cbbfd2f75cba/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1773646/7f825bcc-b3a4-4546-a80a-cbbfd2f75cba/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1989<br>
@@ -1256,7 +1256,7 @@ Cбивчивый монолог мужчины у безжизненного т
 # Скверный анекдот
 ## Скверный анекдот
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/b1277032-b335-40d7-8f68-edd2bf8b6b5e/300x450" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/b1277032-b335-40d7-8f68-edd2bf8b6b5e/300x450" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** комедия<br>
 **Год:** 1966<br>
@@ -1277,7 +1277,7 @@ Cбивчивый монолог мужчины у безжизненного т
 # Сон смешного человека
 ## Посещение
 
-<img src="https://www.kino-teatr.ru/movie/posters/big/5/5425.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://www.kino-teatr.ru/movie/posters/big/5/5425.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1989<br>
@@ -1294,7 +1294,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Сон смешного человека
 
-<img src="https://upload.wikimedia.org/wikipedia/ru/f/f6/%D0%A1%D0%BE%D0%BD_%D1%81%D0%BC%D0%B5%D1%88%D0%BD%D0%BE%D0%B3%D0%BE_%D1%87%D0%B5%D0%BB%D0%BE%D0%B2%D0%B5%D0%BA%D0%B0_%28%D0%BA%D0%B0%D0%B4%D1%80%29.jpg" alt="drawing" width="225" align="right"/>
+<img src="https://upload.wikimedia.org/wikipedia/ru/f/f6/%D0%A1%D0%BE%D0%BD_%D1%81%D0%BC%D0%B5%D1%88%D0%BD%D0%BE%D0%B3%D0%BE_%D1%87%D0%B5%D0%BB%D0%BE%D0%B2%D0%B5%D0%BA%D0%B0_%28%D0%BA%D0%B0%D0%B4%D1%80%29.jpg" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, фэнтези, мультфильм, короткометражка<br>
 **Год:** 1992<br>
@@ -1315,7 +1315,7 @@ Cбивчивый монолог мужчины у безжизненного т
 # Униженные и оскорблённые
 ## Униженные и оскорбленные
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1946459/d9ad7f9a-9316-4772-af7b-eb594f2d856a/300x450" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1946459/d9ad7f9a-9316-4772-af7b-eb594f2d856a/300x450" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1979<br>
@@ -1333,7 +1333,7 @@ Cбивчивый монолог мужчины у безжизненного т
 
 ## Униженные и оскорбленные
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1777765/3eedaaf1-ef48-4a40-bdb5-358ab3495da7/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1777765/3eedaaf1-ef48-4a40-bdb5-358ab3495da7/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма, мелодрама<br>
 **Год:** 1990<br>
@@ -1354,7 +1354,7 @@ Cбивчивый монолог мужчины у безжизненного т
 # Чужая жена и муж под кроватью
 ## Чужая жена и муж под кроватью
 
-<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/a3b3f80c-a952-47e6-8d2f-de1e07dba472/600x900" alt="drawing" width="225" align="right"/>
+<img src="https://avatars.mds.yandex.net/get-kinopoisk-image/1704946/a3b3f80c-a952-47e6-8d2f-de1e07dba472/600x900" border="3" alt="drawing" width="225" align="right"/>
 
 **Жанры:** драма<br>
 **Год:** 1984<br>
